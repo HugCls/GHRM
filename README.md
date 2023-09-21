@@ -89,3 +89,5 @@
 2023-09-21: "Life is what happens to you while you're busy making other plans." - John Lennon
 
 2023-09-21: "People rarely succeed unless they have fun in what they are doing." - Dale Carnegie
+
+2023-09-21: "Life does not get better by chance, it gets better by change." - Jim Rohn
