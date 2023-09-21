@@ -275,3 +275,5 @@
 2023-09-21: "People will forget what you said, people will forget what you did, but people will never forget how you made them feel." - Maya Angelou
 
 2023-09-21: "Who wishes to fight must first count the cost." - Sun Tzu
+
+2023-09-21: "A warrior does not give up what he loves, he finds the love in what he does." - Dan Millman
