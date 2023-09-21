@@ -23,3 +23,5 @@
 2023-09-21: "Youth has no age." - Pablo Picasso
 
 2023-09-21: "Trying to define yourself is like trying to bite your own teeth." - Alan Watts
+
+2023-09-21: "The most important battle is one to conquer yourself." - Yanni
