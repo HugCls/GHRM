@@ -377,3 +377,5 @@
 2023-09-21: "Happiness depends on your mindset and attitude." - Roy T. Bennett
 
 2023-09-21: "If you want something then you lose everything. If you don't want anything then you already have everything." - Seungsahn
+
+2023-09-21: "To a mind that is still, the entire universe surrenders." - Zhuangzi
