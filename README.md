@@ -85,3 +85,5 @@
 2023-09-21: "There's no coming to consciousness without pain" - Carl Jung
 
 2023-09-21: "An ounce of performance is worth pounds of promises." - Mae West
+
+2023-09-21: "Life is what happens to you while you're busy making other plans." - John Lennon
