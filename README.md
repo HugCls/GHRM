@@ -497,3 +497,5 @@
 2023-09-21: "Don't let your learning lead to knowledge. Let your learning lead to action." - Jim Rohn
 
 2023-09-21: "You don't have to control your thoughts; you just have to stop letting them control you." - Dan Millman
+
+2023-09-21: "Don't try to be young. Just open your mind. Stay interested in stuff." - Betty White
