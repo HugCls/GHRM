@@ -107,3 +107,5 @@
 2023-09-21: "We're responsible for everything that happens to us." - Yanni
 
 2023-09-21: "Decide whether or not the goal is worth the risks involved. If it is, stop worrying." - Amelia Earhart
+
+2023-09-21: "The world makes way for the man who knows where he is going." - Ralph Waldo Emerson
