@@ -477,3 +477,5 @@
 2023-09-21: "My powers are ordinary. Only my application brings me success." - Isaac Newton
 
 2023-09-21: "Life should be touched, not strangled.  " - Ray Bradbury
+
+2023-09-21: "There is no sadder sight than a young pessimist." - Mark Twain
