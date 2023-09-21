@@ -319,3 +319,5 @@
 2023-09-21: "It is not as important how we start, but how we finish." - Joyce Meyer
 
 2023-09-21: "Half the world is composed of people who have something to say and can't, and the other half who have nothing to say and keep on saying it." - Robert Frost
+
+2023-09-21: "You can't get to a place that you don't believe exists." - Unknown
