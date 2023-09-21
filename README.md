@@ -291,3 +291,5 @@
 2023-09-21: "The shoe that fits one person pinches another; there is no recipe for living that suits all cases." - Carl Jung
 
 2023-09-21: "Be brave to stand for what you believe in even if you stand alone." - Roy T. Bennett
+
+2023-09-21: "Never let the things you can't do stop you from doing what you can." - Ronald Reagan
