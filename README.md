@@ -557,3 +557,5 @@
 2023-09-21: "Winners don't Quit. That's why they Win." - Unknown
 
 2023-09-21: "When you win, say nothing, when you lose say less." - Wayne Gretzky
+
+2023-09-21: "We are what we repeatedly do. Excellence, then, is not an act, but a habit." - Aristotle
