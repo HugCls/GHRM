@@ -185,3 +185,5 @@
 2023-09-21: "You have power over your mind - not outside events. Realize this, and you will find strength." - Marcus Aurelius
 
 2023-09-21: "Tension is who you think you should be. Relaxation is who you are." - Chinese Proverb
+
+2023-09-21: "A crisis is an opportunity riding the dangerous wind." - Chinese Proverb
