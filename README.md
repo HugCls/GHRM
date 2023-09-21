@@ -365,3 +365,5 @@
 2023-09-21: "Unless you change how you are, you will always have what you got." - Jim Rohn
 
 2023-09-21: "The scariest moment is always just before you start. After that, things can only get better." - Stephen King
+
+2023-09-21: "I believe that one of life's greatest risks is never daring to risk." - Oprah Winfrey
