@@ -449,3 +449,5 @@
 2023-09-21: "The greatest mistake you can make in life is to be continually fearing you will make one." - Elbert Hubbard
 
 2023-09-21: "There's no scarcity of opportunity to make a living at what you love. There is only a scarcity of resolve to make it happen." - Wayne Dyer
+
+2023-09-21: "Success is nothing more than a few simple disciplines practiced every day." - Jim Rohn
