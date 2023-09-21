@@ -429,3 +429,5 @@
 2023-09-21: "When you are able to employ your will always for constructive purposes, you become the controller of your destiny." - Paramahansa Yogananda
 
 2023-09-21: "If you look for perfection, you'll never be content." - Leo Tolstoy
+
+2023-09-21: "The moment you doubt whether you can fly, you cease for ever to be able to do it." - James Matthew Barrie
