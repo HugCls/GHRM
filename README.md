@@ -75,3 +75,5 @@
 2023-09-21: "Information changes your mind. Action changes your circumstances." - Jack Butcher
 
 2023-09-21: "When you want something in life, you just gotta reach out and grab it." - Christopher McCandless
+
+2023-09-21: "You drown not by falling into a river, but by staying submerged in it." - Paulo Coelho
