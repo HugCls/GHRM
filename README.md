@@ -165,3 +165,5 @@
 2023-09-21: "Life is 10% what happens to you and 90% how you react to it. " - Charles Swindoll
 
 2023-09-21: "Knowing yourself is the beginning of all wisdom." - Aristotle
+
+2023-09-21: "You must find the place inside yourself where nothing is impossible." - Deepak Chopra
