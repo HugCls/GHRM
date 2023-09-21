@@ -523,3 +523,5 @@
 2023-09-21: "Forget yesterday - it has already forgotten you. Don't sweat tomorrow - you haven't even met. Instead, open your eyes and your heart to a truly precious gift - today." - Steve Maraboli
 
 2023-09-21: "Never let the things you can't do stop you from doing what you can." - Ronald Reagan
+
+2023-09-21: "Don't try to be young. Just open your mind. Stay interested in stuff." - Betty White
