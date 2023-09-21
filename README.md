@@ -113,3 +113,5 @@
 2023-09-21: "You may be one person in this world, but to one person you may mean the world." - Unknown
 
 2023-09-21: "Believe in one thing too much and you have no room for new ideas.  " - Ray Bradbury
+
+2023-09-21: "Man is made by his belief. As he believes, so he is." - Bhagavad Gita
