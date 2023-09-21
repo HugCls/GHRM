@@ -17,3 +17,5 @@
 2023-09-21: "What you resist, persists." - Carl Jung
 
 2023-09-21: "You will not do incredible things without an incredible dream." - John Eliot
+
+2023-09-21: "Do not look for approval except for the consciousness of doing your best." - Andrew Carnegie
