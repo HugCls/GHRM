@@ -117,3 +117,5 @@
 2023-09-21: "Man is made by his belief. As he believes, so he is." - Bhagavad Gita
 
 2023-09-21: "Time flies whether you are having fun or not." - Mary Engelbreit
+
+2023-09-21: "Behind every cloud is another cloud." - Judy Garland
