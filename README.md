@@ -189,3 +189,5 @@
 2023-09-21: "A crisis is an opportunity riding the dangerous wind." - Chinese Proverb
 
 2023-09-21: "Till it has loved, no man or woman can become itself." - Emily Dickinson
+
+2023-09-21: "Education breeds confidence. Confidence breeds hope. Hope breeds peace." - Confucius
