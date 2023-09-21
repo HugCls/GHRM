@@ -519,3 +519,5 @@
 2023-09-21: "Death is as sure for that which is born, as birth is for that which is dead. Therefore grieve not for what is inevitable." - Bhagavad Gita
 
 2023-09-21: "Life is a series of choices and all we can do is make them." - Kamal Ravikant
+
+2023-09-21: "Forget yesterday - it has already forgotten you. Don't sweat tomorrow - you haven't even met. Instead, open your eyes and your heart to a truly precious gift - today." - Steve Maraboli
