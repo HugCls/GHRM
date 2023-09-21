@@ -395,3 +395,5 @@
 2023-09-21: "Reflect upon your present blessings of which every man has many - not on your past misfortunes, of which all men have some." - Charles Dickens
 
 2023-09-21: "Life is one long process of getting tired." - Samuel Butler
+
+2023-09-21: "The goal is not to be perfect by the end, the goal is to be better today." - Simon Sinek
