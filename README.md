@@ -351,3 +351,5 @@
 2023-09-21: "A good master leads you to the true master within. Only that master, who is your own higher self, can adequately answer all questions." - Ming-Dao Deng
 
 2023-09-21: "Meditate. It won't be fun but it will surface what you need to deal with." - Naval Ravikant
+
+2023-09-21: "Rivers know this: there is no hurry. We shall get there some day." - A.A. Milne
