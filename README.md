@@ -297,3 +297,5 @@
 2023-09-21: "Not everything that weighs you down is yours to carry." - Unknown
 
 2023-09-21: "Man's character is his fate." - Heraclitus
+
+2023-09-21: "What a book a devil's chaplain might write on the clumsy, wasteful, blundering, low, and horribly cruel work of nature!" - Charles Darwin
