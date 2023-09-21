@@ -419,3 +419,5 @@
 2023-09-21: "He who has overcome his fears will truly be free." - Aristotle
 
 2023-09-21: "The most tragic thing in the world is a man of genius who is not a man of honor." - George Bernard Shaw
+
+2023-09-21: "Only when I fall do I get up again." - Vincent van Gogh
