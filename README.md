@@ -421,3 +421,5 @@
 2023-09-21: "The most tragic thing in the world is a man of genius who is not a man of honor." - George Bernard Shaw
 
 2023-09-21: "Only when I fall do I get up again." - Vincent van Gogh
+
+2023-09-21: "Happiness depends on your mindset and attitude." - Roy T. Bennett
