@@ -65,3 +65,5 @@
 2023-09-21: "Patience is not the ability to wait but the ability to keep a good attitude while waiting." - Joyce Meyer
 
 2023-09-21: "Nothing in the world is ever completely wrong. Even a stopped clock is right twice a day." - Paulo Coelho
+
+2023-09-21: "Trust, like the soul, never returns once it is gone." - Publilius Syrus
