@@ -27,3 +27,5 @@
 2023-09-21: "The most important battle is one to conquer yourself." - Yanni
 
 2023-09-21: "Though no one can go back and make a brand new start, anyone can start from now and make a brand new ending." - Carl Bard
+
+2023-09-21: "We would accomplish many more things if we did not think of them as impossible." - Vince Lombardi
