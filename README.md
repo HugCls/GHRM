@@ -301,3 +301,5 @@
 2023-09-21: "What a book a devil's chaplain might write on the clumsy, wasteful, blundering, low, and horribly cruel work of nature!" - Charles Darwin
 
 2023-09-21: "The greatest of empires, is the empire over one's self." - Publilius Syrus
+
+2023-09-21: "The search for happiness is one of the chief sources of unhappiness." - Eric Hoffer
