@@ -521,3 +521,5 @@
 2023-09-21: "Life is a series of choices and all we can do is make them." - Kamal Ravikant
 
 2023-09-21: "Forget yesterday - it has already forgotten you. Don't sweat tomorrow - you haven't even met. Instead, open your eyes and your heart to a truly precious gift - today." - Steve Maraboli
+
+2023-09-21: "Never let the things you can't do stop you from doing what you can." - Ronald Reagan
