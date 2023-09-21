@@ -31,3 +31,5 @@
 2023-09-21: "We would accomplish many more things if we did not think of them as impossible." - Vince Lombardi
 
 2023-09-21: "Before preparing to improve the world, first look around your own home three times. " - Chinese Proverb
+
+2023-09-21: "Make your life a mission - not an intermission." - Unknown
