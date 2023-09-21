@@ -101,3 +101,5 @@
 2023-09-21: "Conscience is a dog that does not stop us from passing but that we cannot prevent from barking." - Nicolas Chamfort
 
 2023-09-21: "Light a candle instead of cursing the darkness." - Eleanor Roosevelt
+
+2023-09-21: "Whatever satisfies the soul is truth." - Walt Whitman
