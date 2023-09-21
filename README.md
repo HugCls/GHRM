@@ -211,3 +211,5 @@
 2023-09-21: "You can put lipstick on a pig. It's still a pig." - Barack Obama
 
 2023-09-21: "The present moment dies every moment to become the past , is reborn every moment into the future. All experience is now. Now never ends." - Deepak Chopra
+
+2023-09-21: "Fool me once, shame on you; fool me twice, shame on me. " - Chinese Proverb
