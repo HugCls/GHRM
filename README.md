@@ -455,3 +455,5 @@
 2023-09-21: "You may be one person in this world, but to one person you may mean the world." - Unknown
 
 2023-09-21: "Attitude, not aptitude, determines altitude.  " - Zig Ziglar
+
+2023-09-21: "The most important single ingredient in the formula of success is knowing how to get along with people." - Theodore Roosevelt
