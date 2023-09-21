@@ -83,3 +83,5 @@
 2023-09-21: "We win by helping each other win." - Jack Butcher
 
 2023-09-21: "There's no coming to consciousness without pain" - Carl Jung
+
+2023-09-21: "An ounce of performance is worth pounds of promises." - Mae West
