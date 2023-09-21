@@ -191,3 +191,5 @@
 2023-09-21: "Till it has loved, no man or woman can become itself." - Emily Dickinson
 
 2023-09-21: "Education breeds confidence. Confidence breeds hope. Hope breeds peace." - Confucius
+
+2023-09-21: "It is amazing what you can accomplish if you do not care who gets the credit." - Harry S. Truman
