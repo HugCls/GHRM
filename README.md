@@ -553,3 +553,5 @@
 2023-09-21: "The only reason to be alive is to enjoy it." - Rita Mae Brown
 
 2023-09-21: "Presents are made for the pleasure of who gives them, not the merits of who receives them." - Carlos Ruiz Zafon
+
+2023-09-21: "Winners don't Quit. That's why they Win." - Unknown
