@@ -21,3 +21,5 @@
 2023-09-21: "Do not look for approval except for the consciousness of doing your best." - Andrew Carnegie
 
 2023-09-21: "Youth has no age." - Pablo Picasso
+
+2023-09-21: "Trying to define yourself is like trying to bite your own teeth." - Alan Watts
