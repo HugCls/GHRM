@@ -251,3 +251,5 @@
 2023-09-21: "Never spend your money before you have earned it." - Thomas Jefferson
 
 2023-09-21: "Do not anticipate trouble, or worry about what may never happen. Keep in the sunlight." - Benjamin Franklin
+
+2023-09-21: "Things turn out best for the people who make the best of the way things turn out." - John Wooden
