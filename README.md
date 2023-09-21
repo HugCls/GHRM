@@ -513,3 +513,5 @@
 2023-09-21: "Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy." - Thich Nhat Hanh
 
 2023-09-21: "The friend is the man who knows all about you, and still likes you." - Elbert Hubbard
+
+2023-09-21: "Work for something because it is good, not just because it stands a chance to succeed." - Vaclav Havel
