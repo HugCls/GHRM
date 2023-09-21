@@ -1,4 +1,4 @@
-import { get } from 'axios';
+import axios from 'axios';
 import { readFileSync, writeFileSync } from 'fs';
 
 // Obtenir la date actuelle
@@ -10,7 +10,7 @@ const year = date.getFullYear();
 const dateString = `${year}-${month}-${day}`;
 
 // Obtenir une citation inspirante
-get('https://zenquotes.io/api/random')
+axios.get('https://zenquotes.io/api/random')
   .then(response => {
     const quote = response.data[0].q;
     const author = response.data[0].a;
