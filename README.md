@@ -331,3 +331,5 @@
 2023-09-21: "Those who are easily shocked should be shocked more often." - Mae West
 
 2023-09-21: "Where we fall are the stepping-stones for our journey." - Lolly Daskal
+
+2023-09-21: "To affect the quality of the day, that is the highest of arts." - Henry David Thoreau
