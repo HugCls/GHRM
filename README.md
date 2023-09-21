@@ -555,3 +555,5 @@
 2023-09-21: "Presents are made for the pleasure of who gives them, not the merits of who receives them." - Carlos Ruiz Zafon
 
 2023-09-21: "Winners don't Quit. That's why they Win." - Unknown
+
+2023-09-21: "When you win, say nothing, when you lose say less." - Wayne Gretzky
