@@ -507,3 +507,5 @@
 2023-09-21: "The farther backward you can look, the farther forward you are likely to see." - Winston Churchill
 
 2023-09-21: "To be truly ignorant, be content with your own knowledge." - Zhuangzi
+
+2023-09-21: "Charms strike the sight, but merit wins the soul." - Alexander Pope
