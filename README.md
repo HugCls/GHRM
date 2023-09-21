@@ -249,3 +249,5 @@
 2023-09-21: "The four P's to success are pressure, persistence, perseverance, and prayer." - Steve Harvey
 
 2023-09-21: "Never spend your money before you have earned it." - Thomas Jefferson
+
+2023-09-21: "Do not anticipate trouble, or worry about what may never happen. Keep in the sunlight." - Benjamin Franklin
