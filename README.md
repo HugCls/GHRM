@@ -233,3 +233,5 @@
 2023-09-21: "To some degree, you control your life by controlling your time." - Conrad Hilton
 
 2023-09-21: "To think is easy. To act is hard. But the hardest thing in the world is to act in accordance with your thinking." - Johann Wolfgang von Goethe
+
+2023-09-21: "From error to error one discovers the entire truth." - Sigmund Freud
