@@ -49,3 +49,5 @@
 2023-09-21: "It is ignorance that causes most mistakes." - Harry S. Truman
 
 2023-09-21: "Peace if possible, truth at all costs." - Martin Luther
+
+2023-09-21: "If you can handle rejection, you'll learn to get everything you want." - Tony Robbins
