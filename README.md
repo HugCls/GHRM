@@ -487,3 +487,5 @@
 2023-09-21: "What keeps life fascinating is the constant creativity of the soul." - Deepak Chopra
 
 2023-09-21: "Trust thyself: every heart vibrates to that iron string." - Ralph Waldo Emerson
+
+2023-09-21: "Remember, today is the tomorrow you worried about yesterday." - Dale Carnegie
