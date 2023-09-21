@@ -241,3 +241,5 @@
 2023-09-21: "Here is the test to find whether your mission on earth is finished. If you're alive, it isn't." - Richard Bach
 
 2023-09-21: "Everyone has the right to make his own decisions, but none has the right to force his decision on others." - Ayn Rand
+
+2023-09-21: "Do not believe that you will reach your destination without leaving the shore. " - Chinese Proverb
