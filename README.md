@@ -515,3 +515,5 @@
 2023-09-21: "The friend is the man who knows all about you, and still likes you." - Elbert Hubbard
 
 2023-09-21: "Work for something because it is good, not just because it stands a chance to succeed." - Vaclav Havel
+
+2023-09-21: "Death is as sure for that which is born, as birth is for that which is dead. Therefore grieve not for what is inevitable." - Bhagavad Gita
