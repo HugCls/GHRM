@@ -247,3 +247,5 @@
 2023-09-21: "The positive thinker sees the invisible, feels the intangible, and achieves the impossible." - Winston Churchill
 
 2023-09-21: "The four P's to success are pressure, persistence, perseverance, and prayer." - Steve Harvey
+
+2023-09-21: "Never spend your money before you have earned it." - Thomas Jefferson
