@@ -187,3 +187,5 @@
 2023-09-21: "Tension is who you think you should be. Relaxation is who you are." - Chinese Proverb
 
 2023-09-21: "A crisis is an opportunity riding the dangerous wind." - Chinese Proverb
+
+2023-09-21: "Till it has loved, no man or woman can become itself." - Emily Dickinson
