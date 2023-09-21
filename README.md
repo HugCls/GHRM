@@ -321,3 +321,5 @@
 2023-09-21: "Half the world is composed of people who have something to say and can't, and the other half who have nothing to say and keep on saying it." - Robert Frost
 
 2023-09-21: "You can't get to a place that you don't believe exists." - Unknown
+
+2023-09-21: "You can start changing our world for the better daily, no matter how small the action." - Nelson Mandela
