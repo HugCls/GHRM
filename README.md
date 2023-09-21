@@ -217,3 +217,5 @@
 2023-09-21: "Inspire yourself to be great. Being good isn't good enough." - Gurbaksh Chahal
 
 2023-09-21: "Happiness is when what you think, what you say, and what you do are in harmony." - Mahatma Gandhi
+
+2023-09-21: "Everything begins with an idea." - Earl Nightingale
