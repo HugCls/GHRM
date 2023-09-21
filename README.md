@@ -287,3 +287,5 @@
 2023-09-21: "It's not how much money you make, it's how much money you keep." - Robert Kiyosaki
 
 2023-09-21: "Time is a game played beautifully by children." - Heraclitus
+
+2023-09-21: "The shoe that fits one person pinches another; there is no recipe for living that suits all cases." - Carl Jung
