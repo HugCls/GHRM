@@ -263,3 +263,5 @@
 2023-09-21: "I do not seek. I find." - Pablo Picasso
 
 2023-09-21: "Behind every cloud is another cloud." - Judy Garland
+
+2023-09-21: "If you are going to achieve excellence in big things, you develop the habit in little matters." - Colin Powell
