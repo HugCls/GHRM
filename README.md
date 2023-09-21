@@ -493,3 +493,5 @@
 2023-09-21: "The reward of suffering is experience." - Harry S. Truman
 
 2023-09-21: "Where there is anger, there is always pain underneath." - Eckhart Tolle
+
+2023-09-21: "Don't let your learning lead to knowledge. Let your learning lead to action." - Jim Rohn
