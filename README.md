@@ -423,3 +423,5 @@
 2023-09-21: "Only when I fall do I get up again." - Vincent van Gogh
 
 2023-09-21: "Happiness depends on your mindset and attitude." - Roy T. Bennett
+
+2023-09-21: "We are born from a quiet sleep, and we die to a calm awakening" - Zhuangzi
