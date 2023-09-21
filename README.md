@@ -333,3 +333,5 @@
 2023-09-21: "Where we fall are the stepping-stones for our journey." - Lolly Daskal
 
 2023-09-21: "To affect the quality of the day, that is the highest of arts." - Henry David Thoreau
+
+2023-09-21: "He who leaves the game wins it." - Nicolas Chamfort
