@@ -551,3 +551,5 @@
 2023-09-21: "Do not ignore the passion that burns in you. Spend time to discover your gift." - Steve Harvey
 
 2023-09-21: "The only reason to be alive is to enjoy it." - Rita Mae Brown
+
+2023-09-21: "Presents are made for the pleasure of who gives them, not the merits of who receives them." - Carlos Ruiz Zafon
