@@ -445,3 +445,5 @@
 2023-09-21: "We live only now. Everything else is either passed or is unknown." - Marcus Aurelius
 
 2023-09-21: "If you do what you've always done, you'll get what you've always gotten." - Tony Robbins
+
+2023-09-21: "The greatest mistake you can make in life is to be continually fearing you will make one." - Elbert Hubbard
