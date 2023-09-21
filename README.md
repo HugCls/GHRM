@@ -73,3 +73,5 @@
 2023-09-21: "There is no fear for one whose mind is not filled with desires." - Buddha
 
 2023-09-21: "Information changes your mind. Action changes your circumstances." - Jack Butcher
+
+2023-09-21: "When you want something in life, you just gotta reach out and grab it." - Christopher McCandless
