@@ -457,3 +457,5 @@
 2023-09-21: "Attitude, not aptitude, determines altitude.  " - Zig Ziglar
 
 2023-09-21: "The most important single ingredient in the formula of success is knowing how to get along with people." - Theodore Roosevelt
+
+2023-09-21: "He that can have patience can have what he will." - Benjamin Franklin
