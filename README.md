@@ -151,3 +151,5 @@
 2023-09-21: "No amount of regretting can change the past, and no amount of worrying can change the future." - Roy T. Bennett
 
 2023-09-21: "You must live in the present, launch yourself on every wave, find your eternity in each moment. Fools stand on their island of opportunities and look toward another land. There is no other land; there is no other life but this." - Henry David Thoreau
+
+2023-09-21: "Quality means doing it right when no one is looking." - Henry Ford
