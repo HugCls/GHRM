@@ -99,3 +99,5 @@
 2023-09-21: "You have the ability, now apply yourself." - Benjamin Mays
 
 2023-09-21: "Conscience is a dog that does not stop us from passing but that we cannot prevent from barking." - Nicolas Chamfort
+
+2023-09-21: "Light a candle instead of cursing the darkness." - Eleanor Roosevelt
