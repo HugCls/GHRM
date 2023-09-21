@@ -95,3 +95,5 @@
 2023-09-21: "Champions keep playing until they get it right." - Billie Jean King
 
 2023-09-21: "Never argue with stupid people, they will drag you down to their level and then beat you with experience." - Mark Twain
+
+2023-09-21: "You have the ability, now apply yourself." - Benjamin Mays
