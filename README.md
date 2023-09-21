@@ -353,3 +353,5 @@
 2023-09-21: "Meditate. It won't be fun but it will surface what you need to deal with." - Naval Ravikant
 
 2023-09-21: "Rivers know this: there is no hurry. We shall get there some day." - A.A. Milne
+
+2023-09-21: "We have more possibilities available in each moment than we realize." - Thich Nhat Hanh
