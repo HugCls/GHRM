@@ -349,3 +349,5 @@
 2023-09-21: "It is our experiences that mold us into who we are...during times of adversity our true character will show." - Unknown
 
 2023-09-21: "A good master leads you to the true master within. Only that master, who is your own higher self, can adequately answer all questions." - Ming-Dao Deng
+
+2023-09-21: "Meditate. It won't be fun but it will surface what you need to deal with." - Naval Ravikant
