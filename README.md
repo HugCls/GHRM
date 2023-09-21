@@ -397,3 +397,5 @@
 2023-09-21: "Life is one long process of getting tired." - Samuel Butler
 
 2023-09-21: "The goal is not to be perfect by the end, the goal is to be better today." - Simon Sinek
+
+2023-09-21: "You can put lipstick on a pig. It's still a pig." - Barack Obama
