@@ -59,3 +59,5 @@
 2023-09-21: "If you see someone without a smile give them one of yours." - Unknown
 
 2023-09-21: "If you want to make God laugh, tell him about your plans. " - Woody Allen
+
+2023-09-21: "Life is not a problem to be solved, but a reality to be experienced." - Soren Kierkegaard
