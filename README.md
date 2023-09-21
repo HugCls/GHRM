@@ -167,3 +167,5 @@
 2023-09-21: "Knowing yourself is the beginning of all wisdom." - Aristotle
 
 2023-09-21: "You must find the place inside yourself where nothing is impossible." - Deepak Chopra
+
+2023-09-21: "Rest and be kind, you don't have to prove anything." - Jack Kerouac
