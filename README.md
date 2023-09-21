@@ -471,3 +471,5 @@
 2023-09-21: "The biggest room in the world is the room for improvement." - Unknown
 
 2023-09-21: "The highest form of ignorance is when you reject something you don't know anything about. " - Wayne Dyer
+
+2023-09-21: "Winning isn't everything, but wanting to win is." - Vince Lombardi
