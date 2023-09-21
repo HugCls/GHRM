@@ -237,3 +237,5 @@
 2023-09-21: "From error to error one discovers the entire truth." - Sigmund Freud
 
 2023-09-21: "It isn't what you do, but how you do it." - John Wooden
+
+2023-09-21: "Here is the test to find whether your mission on earth is finished. If you're alive, it isn't." - Richard Bach
