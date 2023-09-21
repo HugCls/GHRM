@@ -527,3 +527,5 @@
 2023-09-21: "Don't try to be young. Just open your mind. Stay interested in stuff." - Betty White
 
 2023-09-21: "You must either modify your dreams or magnify your skills." - Jim Rohn
+
+2023-09-21: "Do not be awe struck by other people and try to copy them. Nobody can be you as efficiently as you can." - Norman Vincent Peale
