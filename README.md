@@ -225,3 +225,5 @@
 2023-09-21: "If you can change your mind, you can change your life." - William James
 
 2023-09-21: "The wisest men follow their own direction." - Euripides
+
+2023-09-21: "Don't let the behavior of others destroy your inner peace." - Dalai Lama
