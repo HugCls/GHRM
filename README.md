@@ -359,3 +359,5 @@
 2023-09-21: "The human mind defines things in relation to one another - without light the notion of darkness would be unintelligible." - Josh Waitzkin
 
 2023-09-21: "If you do not push the boundaries, you will never know where they are." - T.S. Eliot
+
+2023-09-21: "Words are the clothing of our thoughts." - Jonathan Swift
