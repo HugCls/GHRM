@@ -433,3 +433,5 @@
 2023-09-21: "The moment you doubt whether you can fly, you cease for ever to be able to do it." - James Matthew Barrie
 
 2023-09-21: "Talent is luck. The important thing in life is courage." - Woody Allen
+
+2023-09-21: "Throw your heart over the bar and your body will follow." - Norman Vincent Peale
