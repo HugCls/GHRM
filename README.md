@@ -323,3 +323,5 @@
 2023-09-21: "You can't get to a place that you don't believe exists." - Unknown
 
 2023-09-21: "You can start changing our world for the better daily, no matter how small the action." - Nelson Mandela
+
+2023-09-21: "Learn to sit back and observe, not everything needs a reaction." - Unknown
