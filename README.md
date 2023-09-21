@@ -13,3 +13,5 @@
 2023-09-21: "The goal of an artist is to create the definitive work that cannot be surpassed." - George Bernard Shaw
 
 2023-09-21: "Preoccupied with a single leaf you won't see the tree." - Unknown
+
+2023-09-21: "What you resist, persists." - Carl Jung
