@@ -235,3 +235,5 @@
 2023-09-21: "To think is easy. To act is hard. But the hardest thing in the world is to act in accordance with your thinking." - Johann Wolfgang von Goethe
 
 2023-09-21: "From error to error one discovers the entire truth." - Sigmund Freud
+
+2023-09-21: "It isn't what you do, but how you do it." - John Wooden
