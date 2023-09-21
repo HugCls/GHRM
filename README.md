@@ -461,3 +461,5 @@
 2023-09-21: "He that can have patience can have what he will." - Benjamin Franklin
 
 2023-09-21: "When the fish is caught we pay no more attention to the trap." - Huang Po
+
+2023-09-21: "Life is trying things to see if they work." - Ray Bradbury
