@@ -547,3 +547,5 @@
 2023-09-21: "Many roads lead to the path, but basically there are only two: reason and practice. " - Bodhidharma
 
 2023-09-21: "Before enlightenment; chop wood, carry water. After enlightenment; chop wood, carry water." - Buddha
+
+2023-09-21: "Do not ignore the passion that burns in you. Spend time to discover your gift." - Steve Harvey
