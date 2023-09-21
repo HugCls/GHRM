@@ -125,3 +125,5 @@
 2023-09-21: "Where we fall are the stepping-stones for our journey." - Lolly Daskal
 
 2023-09-21: "From the errors of others, a wise man corrects his own." - Publilius Syrus
+
+2023-09-21: "Without the confidence, nothing can be accomplished." - Sathya Sai Baba
