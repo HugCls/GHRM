@@ -355,3 +355,5 @@
 2023-09-21: "Rivers know this: there is no hurry. We shall get there some day." - A.A. Milne
 
 2023-09-21: "We have more possibilities available in each moment than we realize." - Thich Nhat Hanh
+
+2023-09-21: "The human mind defines things in relation to one another - without light the notion of darkness would be unintelligible." - Josh Waitzkin
