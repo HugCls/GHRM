@@ -183,3 +183,5 @@
 2023-09-21: "We can't help everyone, but everyone can help someone." - Ronald Reagan
 
 2023-09-21: "You have power over your mind - not outside events. Realize this, and you will find strength." - Marcus Aurelius
+
+2023-09-21: "Tension is who you think you should be. Relaxation is who you are." - Chinese Proverb
