@@ -361,3 +361,5 @@
 2023-09-21: "If you do not push the boundaries, you will never know where they are." - T.S. Eliot
 
 2023-09-21: "Words are the clothing of our thoughts." - Jonathan Swift
+
+2023-09-21: "Unless you change how you are, you will always have what you got." - Jim Rohn
