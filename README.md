@@ -265,3 +265,5 @@
 2023-09-21: "Behind every cloud is another cloud." - Judy Garland
 
 2023-09-21: "If you are going to achieve excellence in big things, you develop the habit in little matters." - Colin Powell
+
+2023-09-21: "Learn the rules like a pro, so you can break them like an artist." - Pablo Picasso
