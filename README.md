@@ -269,3 +269,5 @@
 2023-09-21: "Learn the rules like a pro, so you can break them like an artist." - Pablo Picasso
 
 2023-09-21: "Fears are nothing more than a state of mind." - Napoleon Hill
+
+2023-09-21: "The power of man has grown in every sphere, except over himself." - Winston Churchill
