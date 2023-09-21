@@ -35,3 +35,5 @@
 2023-09-21: "Make your life a mission - not an intermission." - Unknown
 
 2023-09-21: "The more you feed your mind with positive thoughts, the more you can attract great things into your life." - Roy T. Bennett
+
+2023-09-21: "If you don't read the newspaper, you're uninformed. If you read the newspaper, you're misinformed." - Mark Twain
