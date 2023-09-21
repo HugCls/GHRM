@@ -273,3 +273,5 @@
 2023-09-21: "The power of man has grown in every sphere, except over himself." - Winston Churchill
 
 2023-09-21: "People will forget what you said, people will forget what you did, but people will never forget how you made them feel." - Maya Angelou
+
+2023-09-21: "Who wishes to fight must first count the cost." - Sun Tzu
