@@ -425,3 +425,5 @@
 2023-09-21: "Happiness depends on your mindset and attitude." - Roy T. Bennett
 
 2023-09-21: "We are born from a quiet sleep, and we die to a calm awakening" - Zhuangzi
+
+2023-09-21: "When you are able to employ your will always for constructive purposes, you become the controller of your destiny." - Paramahansa Yogananda
