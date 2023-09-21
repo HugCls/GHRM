@@ -293,3 +293,5 @@
 2023-09-21: "Be brave to stand for what you believe in even if you stand alone." - Roy T. Bennett
 
 2023-09-21: "Never let the things you can't do stop you from doing what you can." - Ronald Reagan
+
+2023-09-21: "Not everything that weighs you down is yours to carry." - Unknown
