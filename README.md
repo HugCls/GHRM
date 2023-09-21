@@ -431,3 +431,5 @@
 2023-09-21: "If you look for perfection, you'll never be content." - Leo Tolstoy
 
 2023-09-21: "The moment you doubt whether you can fly, you cease for ever to be able to do it." - James Matthew Barrie
+
+2023-09-21: "Talent is luck. The important thing in life is courage." - Woody Allen
