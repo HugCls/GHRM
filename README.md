@@ -549,3 +549,5 @@
 2023-09-21: "Before enlightenment; chop wood, carry water. After enlightenment; chop wood, carry water." - Buddha
 
 2023-09-21: "Do not ignore the passion that burns in you. Spend time to discover your gift." - Steve Harvey
+
+2023-09-21: "The only reason to be alive is to enjoy it." - Rita Mae Brown
