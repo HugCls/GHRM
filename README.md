@@ -25,3 +25,5 @@
 2023-09-21: "Trying to define yourself is like trying to bite your own teeth." - Alan Watts
 
 2023-09-21: "The most important battle is one to conquer yourself." - Yanni
+
+2023-09-21: "Though no one can go back and make a brand new start, anyone can start from now and make a brand new ending." - Carl Bard
