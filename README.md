@@ -53,3 +53,5 @@
 2023-09-21: "If you can handle rejection, you'll learn to get everything you want." - Tony Robbins
 
 2023-09-21: "The purpose of life is to live it, to taste experience to the utmost, to reach out eagerly and without fear for newer and richer experience." - Eleanor Roosevelt
+
+2023-09-21: "Let each man exercise the art he knows." - Aristophanes
