@@ -245,3 +245,5 @@
 2023-09-21: "Do not believe that you will reach your destination without leaving the shore. " - Chinese Proverb
 
 2023-09-21: "The positive thinker sees the invisible, feels the intangible, and achieves the impossible." - Winston Churchill
+
+2023-09-21: "The four P's to success are pressure, persistence, perseverance, and prayer." - Steve Harvey
