@@ -481,3 +481,5 @@
 2023-09-21: "There is no sadder sight than a young pessimist." - Mark Twain
 
 2023-09-21: "The constant assertion of belief is an indication of fear." - Jiddu Krishnamurti
+
+2023-09-21: "Persistence is very important. You should not give up unless you are forced to give up." - Elon Musk
