@@ -61,3 +61,5 @@
 2023-09-21: "If you want to make God laugh, tell him about your plans. " - Woody Allen
 
 2023-09-21: "Life is not a problem to be solved, but a reality to be experienced." - Soren Kierkegaard
+
+2023-09-21: "Patience is not the ability to wait but the ability to keep a good attitude while waiting." - Joyce Meyer
