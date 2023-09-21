@@ -259,3 +259,5 @@
 2023-09-21: "We would accomplish many more things if we did not think of them as impossible." - Vince Lombardi
 
 2023-09-21: "Dark times lie ahead of us and there will be a time when we must choose between what is easy and what is right." - Albus Dumbledore
+
+2023-09-21: "I do not seek. I find." - Pablo Picasso
