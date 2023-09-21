@@ -385,3 +385,5 @@
 2023-09-21: "Confidence comes from crossing thresholds." - Kamal Ravikant
 
 2023-09-21: "The art of being wise is knowing what to overlook." - William James
+
+2023-09-21: "If you can handle rejection, you'll learn to get everything you want." - Tony Robbins
