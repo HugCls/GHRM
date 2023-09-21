@@ -407,3 +407,5 @@
 2023-09-21: "Never argue with ignorance. It only leads to frustration." - Unknown
 
 2023-09-21: "Every blessing ignored becomes a curse." - Paulo Coelho
+
+2023-09-21: "Never waste a minute of your precious life thinking about people you don't like." - Celestine Chua
