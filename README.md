@@ -403,3 +403,5 @@
 2023-09-21: "Forgive yourself for your faults and your mistakes and move on." - Les Brown
 
 2023-09-21: "Deeds will not be less valiant because they are upraised." - J.R.R. Tolkien
+
+2023-09-21: "Never argue with ignorance. It only leads to frustration." - Unknown
