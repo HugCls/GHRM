@@ -499,3 +499,5 @@
 2023-09-21: "You don't have to control your thoughts; you just have to stop letting them control you." - Dan Millman
 
 2023-09-21: "Don't try to be young. Just open your mind. Stay interested in stuff." - Betty White
+
+2023-09-21: "Sometimes you have to lose all you have to find out who you truly are." - Roy T. Bennett
