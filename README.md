@@ -463,3 +463,5 @@
 2023-09-21: "When the fish is caught we pay no more attention to the trap." - Huang Po
 
 2023-09-21: "Life is trying things to see if they work." - Ray Bradbury
+
+2023-09-21: "You are the average of the five people you spend most time with." - Jim Rohn
