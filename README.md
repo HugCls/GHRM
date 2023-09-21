@@ -285,3 +285,5 @@
 2023-09-21: "Freedom itself demands discomfort." - Mark Manson
 
 2023-09-21: "It's not how much money you make, it's how much money you keep." - Robert Kiyosaki
+
+2023-09-21: "Time is a game played beautifully by children." - Heraclitus
