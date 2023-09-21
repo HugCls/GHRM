@@ -69,3 +69,5 @@
 2023-09-21: "Trust, like the soul, never returns once it is gone." - Publilius Syrus
 
 2023-09-21: "Far and away the best prize that life has to offer is the chance to work hard at work worth doing." - Theodore Roosevelt
+
+2023-09-21: "There is no fear for one whose mind is not filled with desires." - Buddha
