@@ -97,3 +97,5 @@
 2023-09-21: "Never argue with stupid people, they will drag you down to their level and then beat you with experience." - Mark Twain
 
 2023-09-21: "You have the ability, now apply yourself." - Benjamin Mays
+
+2023-09-21: "Conscience is a dog that does not stop us from passing but that we cannot prevent from barking." - Nicolas Chamfort
