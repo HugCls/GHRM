@@ -171,3 +171,5 @@
 2023-09-21: "Rest and be kind, you don't have to prove anything." - Jack Kerouac
 
 2023-09-21: "If you cannot understand something, then you have understood it incorrectly." - Kabir
+
+2023-09-21: "We create the world and ourselves;" - Ming-Dao Deng
