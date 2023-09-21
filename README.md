@@ -195,3 +195,5 @@
 2023-09-21: "It is amazing what you can accomplish if you do not care who gets the credit." - Harry S. Truman
 
 2023-09-21: "Chop your own wood and it will warm you twice. " - Henry Ford
+
+2023-09-21: "If you don't have time to do it right, when will you have time to do it over?" - John Wooden
