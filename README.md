@@ -43,3 +43,5 @@
 2023-09-21: "The Art of Peace begins with you." - Morihei Ueshiba
 
 2023-09-21: "No one can confidently say that he will still be living tomorrow." - Euripides
+
+2023-09-21: "It ain't where you start in life, it's where you end up, and what you did along the way." - Colin Powell
