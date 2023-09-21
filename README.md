@@ -133,3 +133,5 @@
 2023-09-21: "Go confidently in the direction of your dreams! Live the life you've imagined." - Henry David Thoreau
 
 2023-09-21: "Identify your problems, but give your power and energy to solutions." - Tony Robbins
+
+2023-09-21: "When things go wrong, don't go with them." - Elvis Presley
