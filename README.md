@@ -559,3 +559,5 @@
 2023-09-21: "When you win, say nothing, when you lose say less." - Wayne Gretzky
 
 2023-09-21: "We are what we repeatedly do. Excellence, then, is not an act, but a habit." - Aristotle
+
+2023-09-21: "Things turn out best for the people who make the best of the way things turn out." - John Wooden
