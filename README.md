@@ -325,3 +325,5 @@
 2023-09-21: "You can start changing our world for the better daily, no matter how small the action." - Nelson Mandela
 
 2023-09-21: "Learn to sit back and observe, not everything needs a reaction." - Unknown
+
+2023-09-21: "A vital part of the happiness formula is self-discipline. Whoever conquers himself knows deep happiness that fills the heart with joy." - Norman Vincent Peale
