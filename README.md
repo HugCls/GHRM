@@ -383,3 +383,5 @@
 2023-09-21: "Learn to use your emotions to think, not think with your emotions." - Robert Kiyosaki
 
 2023-09-21: "Confidence comes from crossing thresholds." - Kamal Ravikant
+
+2023-09-21: "The art of being wise is knowing what to overlook." - William James
