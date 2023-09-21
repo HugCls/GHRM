@@ -479,3 +479,5 @@
 2023-09-21: "Life should be touched, not strangled.  " - Ray Bradbury
 
 2023-09-21: "There is no sadder sight than a young pessimist." - Mark Twain
+
+2023-09-21: "The constant assertion of belief is an indication of fear." - Jiddu Krishnamurti
