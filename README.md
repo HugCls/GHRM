@@ -179,3 +179,5 @@
 2023-09-21: "Welcome every morning with a smile. Look on the new day as another gift from your Creator, another golden opportunity." - Og Mandino
 
 2023-09-21: "If you're walking down the right path and you're willing to keep walking, eventually you'll make progress." - Barack Obama
+
+2023-09-21: "We can't help everyone, but everyone can help someone." - Ronald Reagan
