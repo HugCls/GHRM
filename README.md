@@ -231,3 +231,5 @@
 2023-09-21: "Show kindness but never expect it. Show authenticity but never expect it. Only the wise are indifferent to things they can't control." - Maxime Lagace
 
 2023-09-21: "To some degree, you control your life by controlling your time." - Conrad Hilton
+
+2023-09-21: "To think is easy. To act is hard. But the hardest thing in the world is to act in accordance with your thinking." - Johann Wolfgang von Goethe
