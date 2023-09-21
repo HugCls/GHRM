@@ -173,3 +173,5 @@
 2023-09-21: "If you cannot understand something, then you have understood it incorrectly." - Kabir
 
 2023-09-21: "We create the world and ourselves;" - Ming-Dao Deng
+
+2023-09-21: "Lack of emotion causes lack of progress and lack of motivation." - Tony Robbins
