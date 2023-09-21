@@ -369,3 +369,5 @@
 2023-09-21: "I believe that one of life's greatest risks is never daring to risk." - Oprah Winfrey
 
 2023-09-21: "You're on earth. There's no cure for that." - Samuel Beckett
+
+2023-09-21: "The greatest of empires, is the empire over one's self." - Publilius Syrus
