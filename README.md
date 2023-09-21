@@ -47,3 +47,5 @@
 2023-09-21: "It ain't where you start in life, it's where you end up, and what you did along the way." - Colin Powell
 
 2023-09-21: "It is ignorance that causes most mistakes." - Harry S. Truman
+
+2023-09-21: "Peace if possible, truth at all costs." - Martin Luther
