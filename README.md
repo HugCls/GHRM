@@ -535,3 +535,5 @@
 2023-09-21: "Bad things are not the worst things that an happen to us. NOTHING is the worst thing that can happen to us." - Richard Bach
 
 2023-09-21: "Happiness is not the absence of problems, it's the ability to deal with them." - Steve Maraboli
+
+2023-09-21: "He that can have patience can have what he will." - Benjamin Franklin
