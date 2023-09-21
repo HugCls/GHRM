@@ -193,3 +193,5 @@
 2023-09-21: "Education breeds confidence. Confidence breeds hope. Hope breeds peace." - Confucius
 
 2023-09-21: "It is amazing what you can accomplish if you do not care who gets the credit." - Harry S. Truman
+
+2023-09-21: "Chop your own wood and it will warm you twice. " - Henry Ford
