@@ -157,3 +157,5 @@
 2023-09-21: "The happiest people in the world are those who feel absolutely terrific about themselves." - Brian Tracy
 
 2023-09-21: "Perhaps the most tragic thing about mankind is that we are all dreaming about some magical garden over the horizon, instead of enjoying the roses that are right outside today." - Andrew Carnegie
+
+2023-09-21: "We can choose to look at whatever we want.  We can look at what's wrong in our life or we can look at what's right." - Sonia Ricotti
