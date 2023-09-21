@@ -451,3 +451,5 @@
 2023-09-21: "There's no scarcity of opportunity to make a living at what you love. There is only a scarcity of resolve to make it happen." - Wayne Dyer
 
 2023-09-21: "Success is nothing more than a few simple disciplines practiced every day." - Jim Rohn
+
+2023-09-21: "You may be one person in this world, but to one person you may mean the world." - Unknown
