@@ -79,3 +79,5 @@
 2023-09-21: "You drown not by falling into a river, but by staying submerged in it." - Paulo Coelho
 
 2023-09-21: "Forget yesterday - it has already forgotten you. Don't sweat tomorrow - you haven't even met. Instead, open your eyes and your heart to a truly precious gift - today." - Steve Maraboli
+
+2023-09-21: "We win by helping each other win." - Jack Butcher
