@@ -103,3 +103,5 @@
 2023-09-21: "Light a candle instead of cursing the darkness." - Eleanor Roosevelt
 
 2023-09-21: "Whatever satisfies the soul is truth." - Walt Whitman
+
+2023-09-21: "We're responsible for everything that happens to us." - Yanni
