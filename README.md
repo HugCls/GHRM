@@ -87,3 +87,5 @@
 2023-09-21: "An ounce of performance is worth pounds of promises." - Mae West
 
 2023-09-21: "Life is what happens to you while you're busy making other plans." - John Lennon
+
+2023-09-21: "People rarely succeed unless they have fun in what they are doing." - Dale Carnegie
