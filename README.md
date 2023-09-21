@@ -441,3 +441,5 @@
 2023-09-21: "Most of the evil in this world is done by people with good intentions." - T.S. Eliot
 
 2023-09-21: "The only people without problems are those in cemeteries." - Tony Robbins
+
+2023-09-21: "We live only now. Everything else is either passed or is unknown." - Marcus Aurelius
