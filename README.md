@@ -253,3 +253,5 @@
 2023-09-21: "Do not anticipate trouble, or worry about what may never happen. Keep in the sunlight." - Benjamin Franklin
 
 2023-09-21: "Things turn out best for the people who make the best of the way things turn out." - John Wooden
+
+2023-09-21: "Go for it now. The future is promised to no one. " - Wayne Dyer
