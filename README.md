@@ -15,3 +15,5 @@
 2023-09-21: "Preoccupied with a single leaf you won't see the tree." - Unknown
 
 2023-09-21: "What you resist, persists." - Carl Jung
+
+2023-09-21: "You will not do incredible things without an incredible dream." - John Eliot
