@@ -239,3 +239,5 @@
 2023-09-21: "It isn't what you do, but how you do it." - John Wooden
 
 2023-09-21: "Here is the test to find whether your mission on earth is finished. If you're alive, it isn't." - Richard Bach
+
+2023-09-21: "Everyone has the right to make his own decisions, but none has the right to force his decision on others." - Ayn Rand
