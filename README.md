@@ -373,3 +373,5 @@
 2023-09-21: "The greatest of empires, is the empire over one's self." - Publilius Syrus
 
 2023-09-21: "It is in your moments of decision that your destiny is shaped." - Tony Robbins
+
+2023-09-21: "Happiness depends on your mindset and attitude." - Roy T. Bennett
