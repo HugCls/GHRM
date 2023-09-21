@@ -37,3 +37,5 @@
 2023-09-21: "The more you feed your mind with positive thoughts, the more you can attract great things into your life." - Roy T. Bennett
 
 2023-09-21: "If you don't read the newspaper, you're uninformed. If you read the newspaper, you're misinformed." - Mark Twain
+
+2023-09-21: "The present moment is filled with joy and happiness. If you are attentive, you will see it." - Thich Nhat Hanh
