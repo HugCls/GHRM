@@ -201,3 +201,5 @@
 2023-09-21: "Don't take yourself too seriously, pretty soon you can find the humor in our everyday lives." - Betty White
 
 2023-09-21: "The more we value things, the less we value ourselves.  " - Bruce Lee
+
+2023-09-21: "If you want to make God laugh, tell him about your plans. " - Woody Allen
