@@ -491,3 +491,5 @@
 2023-09-21: "Remember, today is the tomorrow you worried about yesterday." - Dale Carnegie
 
 2023-09-21: "The reward of suffering is experience." - Harry S. Truman
+
+2023-09-21: "Where there is anger, there is always pain underneath." - Eckhart Tolle
