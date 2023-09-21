@@ -313,3 +313,5 @@
 2023-09-21: "Never trust he who trusts everyone." - Carlos Ruiz Zafon
 
 2023-09-21: "Go confidently in the direction of your dreams. Live the life you've imagined." - Arnold Schwarzenegger
+
+2023-09-21: "It is very obvious that we are not influenced by 'facts' but by our interpretation of the facts." - Alfred Adler
