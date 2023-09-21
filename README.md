@@ -127,3 +127,5 @@
 2023-09-21: "From the errors of others, a wise man corrects his own." - Publilius Syrus
 
 2023-09-21: "Without the confidence, nothing can be accomplished." - Sathya Sai Baba
+
+2023-09-21: "Have a vision. Be demanding." - Colin Powell
