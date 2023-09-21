@@ -267,3 +267,5 @@
 2023-09-21: "If you are going to achieve excellence in big things, you develop the habit in little matters." - Colin Powell
 
 2023-09-21: "Learn the rules like a pro, so you can break them like an artist." - Pablo Picasso
+
+2023-09-21: "Fears are nothing more than a state of mind." - Napoleon Hill
