@@ -303,3 +303,5 @@
 2023-09-21: "The greatest of empires, is the empire over one's self." - Publilius Syrus
 
 2023-09-21: "The search for happiness is one of the chief sources of unhappiness." - Eric Hoffer
+
+2023-09-21: "From the errors of others, a wise man corrects his own." - Publilius Syrus
