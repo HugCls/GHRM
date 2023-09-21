@@ -207,3 +207,5 @@
 2023-09-21: "A poet should be so crafty with words that he is envied even for his pains." - Criss Jami
 
 2023-09-21: "The unthankful heart discovers no mercies; but the thankful heart will find, in every hour, some heavenly blessings." - Henry Ward Beecher
+
+2023-09-21: "You can put lipstick on a pig. It's still a pig." - Barack Obama
