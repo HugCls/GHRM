@@ -139,3 +139,5 @@
 2023-09-21: "Let us always meet each other with smile, for the smile is the beginning of love." - Mother Teresa
 
 2023-09-21: "A bird does not sing because it has an answer. It sings because it has a song." - Chinese Proverb
+
+2023-09-21: "Obstacles don't block the path, they are the path." - Zen Proverb
