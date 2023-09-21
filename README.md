@@ -517,3 +517,5 @@
 2023-09-21: "Work for something because it is good, not just because it stands a chance to succeed." - Vaclav Havel
 
 2023-09-21: "Death is as sure for that which is born, as birth is for that which is dead. Therefore grieve not for what is inevitable." - Bhagavad Gita
+
+2023-09-21: "Life is a series of choices and all we can do is make them." - Kamal Ravikant
