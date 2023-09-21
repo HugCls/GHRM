@@ -391,3 +391,5 @@
 2023-09-21: "A zen master's life is one continuous mistake." - Dogen
 
 2023-09-21: "To handle yourself, use your head; to handle others, use your heart." - Eleanor Roosevelt
+
+2023-09-21: "Reflect upon your present blessings of which every man has many - not on your past misfortunes, of which all men have some." - Charles Dickens
