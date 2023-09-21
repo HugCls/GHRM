@@ -543,3 +543,5 @@
 2023-09-21: "Anyone who has ever made anything of importance was disciplined." - Andrew Hendrixson
 
 2023-09-21: "Big people don't make people feel small." - Robin Sharma
+
+2023-09-21: "Many roads lead to the path, but basically there are only two: reason and practice. " - Bodhidharma
