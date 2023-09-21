@@ -161,3 +161,5 @@
 2023-09-21: "We can choose to look at whatever we want.  We can look at what's wrong in our life or we can look at what's right." - Sonia Ricotti
 
 2023-09-21: "If you are far from the enemy, make him believe you are near." - Sun Tzu
+
+2023-09-21: "Life is 10% what happens to you and 90% how you react to it. " - Charles Swindoll
