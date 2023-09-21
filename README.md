@@ -379,3 +379,5 @@
 2023-09-21: "If you want something then you lose everything. If you don't want anything then you already have everything." - Seungsahn
 
 2023-09-21: "To a mind that is still, the entire universe surrenders." - Zhuangzi
+
+2023-09-21: "Learn to use your emotions to think, not think with your emotions." - Robert Kiyosaki
