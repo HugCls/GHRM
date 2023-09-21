@@ -9,3 +9,5 @@
 2023-09-21: "Always show more kindness than seems necessary because the person receiving it needs it more than you will ever know." - Colin Powell
 
 2023-09-21: "You win more from losing than winning." - Morgan Wootten
+
+2023-09-21: "The goal of an artist is to create the definitive work that cannot be surpassed." - George Bernard Shaw
