@@ -163,3 +163,5 @@
 2023-09-21: "If you are far from the enemy, make him believe you are near." - Sun Tzu
 
 2023-09-21: "Life is 10% what happens to you and 90% how you react to it. " - Charles Swindoll
+
+2023-09-21: "Knowing yourself is the beginning of all wisdom." - Aristotle
