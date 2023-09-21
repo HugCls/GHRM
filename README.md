@@ -41,3 +41,5 @@
 2023-09-21: "The present moment is filled with joy and happiness. If you are attentive, you will see it." - Thich Nhat Hanh
 
 2023-09-21: "The Art of Peace begins with you." - Morihei Ueshiba
+
+2023-09-21: "No one can confidently say that he will still be living tomorrow." - Euripides
