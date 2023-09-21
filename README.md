@@ -539,3 +539,5 @@
 2023-09-21: "He that can have patience can have what he will." - Benjamin Franklin
 
 2023-09-21: "If you are patient in one moment of anger, you will escape a hundred days of sorrow. " - Chinese Proverb
+
+2023-09-21: "Anyone who has ever made anything of importance was disciplined." - Andrew Hendrixson
