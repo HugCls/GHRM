@@ -169,3 +169,5 @@
 2023-09-21: "You must find the place inside yourself where nothing is impossible." - Deepak Chopra
 
 2023-09-21: "Rest and be kind, you don't have to prove anything." - Jack Kerouac
+
+2023-09-21: "If you cannot understand something, then you have understood it incorrectly." - Kabir
