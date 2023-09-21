@@ -439,3 +439,5 @@
 2023-09-21: "The privilege of a lifetime is to become who you truly are." - Carl Jung
 
 2023-09-21: "Most of the evil in this world is done by people with good intentions." - T.S. Eliot
+
+2023-09-21: "The only people without problems are those in cemeteries." - Tony Robbins
