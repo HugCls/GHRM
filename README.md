@@ -375,3 +375,5 @@
 2023-09-21: "It is in your moments of decision that your destiny is shaped." - Tony Robbins
 
 2023-09-21: "Happiness depends on your mindset and attitude." - Roy T. Bennett
+
+2023-09-21: "If you want something then you lose everything. If you don't want anything then you already have everything." - Seungsahn
