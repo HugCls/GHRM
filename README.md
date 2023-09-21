@@ -205,3 +205,5 @@
 2023-09-21: "If you want to make God laugh, tell him about your plans. " - Woody Allen
 
 2023-09-21: "A poet should be so crafty with words that he is envied even for his pains." - Criss Jami
+
+2023-09-21: "The unthankful heart discovers no mercies; but the thankful heart will find, in every hour, some heavenly blessings." - Henry Ward Beecher
