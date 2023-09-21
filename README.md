@@ -129,3 +129,5 @@
 2023-09-21: "Without the confidence, nothing can be accomplished." - Sathya Sai Baba
 
 2023-09-21: "Have a vision. Be demanding." - Colin Powell
+
+2023-09-21: "Go confidently in the direction of your dreams! Live the life you've imagined." - Henry David Thoreau
