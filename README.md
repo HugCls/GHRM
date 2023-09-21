@@ -227,3 +227,5 @@
 2023-09-21: "The wisest men follow their own direction." - Euripides
 
 2023-09-21: "Don't let the behavior of others destroy your inner peace." - Dalai Lama
+
+2023-09-21: "Show kindness but never expect it. Show authenticity but never expect it. Only the wise are indifferent to things they can't control." - Maxime Lagace
