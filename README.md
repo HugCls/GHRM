@@ -389,3 +389,5 @@
 2023-09-21: "If you can handle rejection, you'll learn to get everything you want." - Tony Robbins
 
 2023-09-21: "A zen master's life is one continuous mistake." - Dogen
+
+2023-09-21: "To handle yourself, use your head; to handle others, use your heart." - Eleanor Roosevelt
