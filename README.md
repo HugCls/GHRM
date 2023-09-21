@@ -453,3 +453,5 @@
 2023-09-21: "Success is nothing more than a few simple disciplines practiced every day." - Jim Rohn
 
 2023-09-21: "You may be one person in this world, but to one person you may mean the world." - Unknown
+
+2023-09-21: "Attitude, not aptitude, determines altitude.  " - Zig Ziglar
