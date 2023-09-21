@@ -489,3 +489,5 @@
 2023-09-21: "Trust thyself: every heart vibrates to that iron string." - Ralph Waldo Emerson
 
 2023-09-21: "Remember, today is the tomorrow you worried about yesterday." - Dale Carnegie
+
+2023-09-21: "The reward of suffering is experience." - Harry S. Truman
