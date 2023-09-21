@@ -177,3 +177,5 @@
 2023-09-21: "Lack of emotion causes lack of progress and lack of motivation." - Tony Robbins
 
 2023-09-21: "Welcome every morning with a smile. Look on the new day as another gift from your Creator, another golden opportunity." - Og Mandino
+
+2023-09-21: "If you're walking down the right path and you're willing to keep walking, eventually you'll make progress." - Barack Obama
