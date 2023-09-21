@@ -329,3 +329,5 @@
 2023-09-21: "A vital part of the happiness formula is self-discipline. Whoever conquers himself knows deep happiness that fills the heart with joy." - Norman Vincent Peale
 
 2023-09-21: "Those who are easily shocked should be shocked more often." - Mae West
+
+2023-09-21: "Where we fall are the stepping-stones for our journey." - Lolly Daskal
