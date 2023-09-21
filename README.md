@@ -283,3 +283,5 @@
 2023-09-21: "Anxiety is the dizziness of freedom." - Soren Kierkegaard
 
 2023-09-21: "Freedom itself demands discomfort." - Mark Manson
+
+2023-09-21: "It's not how much money you make, it's how much money you keep." - Robert Kiyosaki
