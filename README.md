@@ -277,3 +277,5 @@
 2023-09-21: "Who wishes to fight must first count the cost." - Sun Tzu
 
 2023-09-21: "A warrior does not give up what he loves, he finds the love in what he does." - Dan Millman
+
+2023-09-21: "By going within. Nowhere you can go is more peaceful - more free of interruptions - than your own soul." - Marcus Aurelius
