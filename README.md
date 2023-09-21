@@ -335,3 +335,5 @@
 2023-09-21: "To affect the quality of the day, that is the highest of arts." - Henry David Thoreau
 
 2023-09-21: "He who leaves the game wins it." - Nicolas Chamfort
+
+2023-09-21: "Even though you are on the right track - you will get run over if you just sit there." - Will Rogers
