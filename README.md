@@ -141,3 +141,5 @@
 2023-09-21: "A bird does not sing because it has an answer. It sings because it has a song." - Chinese Proverb
 
 2023-09-21: "Obstacles don't block the path, they are the path." - Zen Proverb
+
+2023-09-21: "To be truly ignorant, be content with your own knowledge." - Zhuangzi
