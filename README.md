@@ -153,3 +153,5 @@
 2023-09-21: "You must live in the present, launch yourself on every wave, find your eternity in each moment. Fools stand on their island of opportunities and look toward another land. There is no other land; there is no other life but this." - Henry David Thoreau
 
 2023-09-21: "Quality means doing it right when no one is looking." - Henry Ford
+
+2023-09-21: "The happiest people in the world are those who feel absolutely terrific about themselves." - Brian Tracy
