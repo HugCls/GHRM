@@ -115,3 +115,5 @@
 2023-09-21: "Believe in one thing too much and you have no room for new ideas.  " - Ray Bradbury
 
 2023-09-21: "Man is made by his belief. As he believes, so he is." - Bhagavad Gita
+
+2023-09-21: "Time flies whether you are having fun or not." - Mary Engelbreit
