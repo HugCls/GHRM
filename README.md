@@ -343,3 +343,5 @@
 2023-09-21: "Enjoy life. There's plenty of time to be dead." - Hans Christian Andersen
 
 2023-09-21: "Why fit in when you were born to stand out?" - Dr. Seuss
+
+2023-09-21: "Your conscience is the measure of the honesty of your selfishness. Listen to it carefully." - Richard Bach
