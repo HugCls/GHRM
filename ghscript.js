@@ -18,6 +18,10 @@ axios.get('https://zenquotes.io/api/random')
     // Lire le contenu actuel du README.md
     let readme = readFileSync('README.md', 'utf8');
 
+    // Supprimer la citation précédente
+    const regex = /\n\n\d{4}-\d{2}-\d{2}: ".*" - .*$/;
+    readme = readme.replace(regex, '');
+
     // Ajouter la date, la citation et l'auteur à la fin du README.md
     readme += `\n\n${dateString}: "${quote}" - ${author}`;
 
