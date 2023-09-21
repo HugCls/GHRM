@@ -29,8 +29,7 @@ jobs:
           git add README.md
           git commit -m "Update README with daily quote"
           git push https://${{ secrets.GITHUB_TOKEN }}@github.com/HugCls/GHRM.git
-        env:
-          GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
+       
       
 
        
