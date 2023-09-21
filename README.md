@@ -123,3 +123,5 @@
 2023-09-21: "Life goes by fast. Enjoy it. Calm down. It's all funny." - Joan Rivers
 
 2023-09-21: "Where we fall are the stepping-stones for our journey." - Lolly Daskal
+
+2023-09-21: "From the errors of others, a wise man corrects his own." - Publilius Syrus
