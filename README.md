@@ -475,3 +475,5 @@
 2023-09-21: "Winning isn't everything, but wanting to win is." - Vince Lombardi
 
 2023-09-21: "My powers are ordinary. Only my application brings me success." - Isaac Newton
+
+2023-09-21: "Life should be touched, not strangled.  " - Ray Bradbury
