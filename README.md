@@ -209,3 +209,5 @@
 2023-09-21: "The unthankful heart discovers no mercies; but the thankful heart will find, in every hour, some heavenly blessings." - Henry Ward Beecher
 
 2023-09-21: "You can put lipstick on a pig. It's still a pig." - Barack Obama
+
+2023-09-21: "The present moment dies every moment to become the past , is reborn every moment into the future. All experience is now. Now never ends." - Deepak Chopra
