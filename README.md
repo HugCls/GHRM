@@ -39,3 +39,5 @@
 2023-09-21: "If you don't read the newspaper, you're uninformed. If you read the newspaper, you're misinformed." - Mark Twain
 
 2023-09-21: "The present moment is filled with joy and happiness. If you are attentive, you will see it." - Thich Nhat Hanh
+
+2023-09-21: "The Art of Peace begins with you." - Morihei Ueshiba
