@@ -341,3 +341,5 @@
 2023-09-21: "Keep your friends close, and your enemies closer." - Sun Tzu
 
 2023-09-21: "Enjoy life. There's plenty of time to be dead." - Hans Christian Andersen
+
+2023-09-21: "Why fit in when you were born to stand out?" - Dr. Seuss
