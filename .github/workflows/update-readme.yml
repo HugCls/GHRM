@@ -1,8 +1,7 @@
 name: Update README
 
-on:
-  schedule:
-    - cron: '0 12 * * *'
+on: push
+  
 
 jobs:
   update_readme:
