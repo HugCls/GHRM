@@ -1,3 +1,3 @@
 # GHRM
 
-2023-09-22: "Amateurs sit and wait for inspiration, the rest of us just get up and got to work." - Stephen King
+2023-09-23: "Life would be tragic if it weren't funny." - Stephen Hawking
