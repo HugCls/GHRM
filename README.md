@@ -1,3 +1,3 @@
 # GHRM
 
-2023-09-23: "Life would be tragic if it weren't funny." - Stephen Hawking
+2023-09-24: "Shoot for the moon, because even if you miss, you'll land among the stars." - Les Brown
