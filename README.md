@@ -1,3 +1,3 @@
 # GHRM
 
-2023-09-24: "Shoot for the moon, because even if you miss, you'll land among the stars." - Les Brown
+2023-09-25: "There is peace even in the storm." - Vincent van Gogh
