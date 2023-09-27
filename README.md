@@ -1,3 +1,3 @@
 # GHRM
 
-2023-09-26: "The greatest gift that you can give to others is the gift of unconditional love and acceptance. " - Brian Tracy
+2023-09-27: "Death is as sure for that which is born, as birth is for that which is dead. Therefore grieve not for what is inevitable." - Bhagavad Gita
