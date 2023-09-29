@@ -1,3 +1,3 @@
 # GHRM
 
-2023-09-28: "Happiness is when what you think, what you say, and what you do are in harmony." - Mahatma Gandhi
+2023-09-29: "Keep your friends close, and your enemies closer." - Sun Tzu
