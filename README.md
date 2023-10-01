@@ -1,3 +1,3 @@
 # GHRM
 
-2023-09-30: "Nothing endures but change." - Heraclitus
+2023-10-01: "If I can stop one heart from breaking, I shall not live in vain." - Emily Dickinson
