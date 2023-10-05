@@ -1,3 +1,3 @@
 # GHRM
 
-2023-10-04: "The only thing we have to fear is fear itself." - Franklin D. Roosevelt
+2023-10-05: "Whatever you think the world is withholding from you, you are withholding from the world." - Eckhart Tolle
