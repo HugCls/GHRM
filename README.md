@@ -1,3 +1,3 @@
 # GHRM
 
-2023-10-05: "Whatever you think the world is withholding from you, you are withholding from the world." - Eckhart Tolle
+2023-10-06: "The greater the impact you want to make, the greater your influence needs to be." - Lolly Daskal
