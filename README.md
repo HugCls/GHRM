@@ -1,3 +1,3 @@
 # GHRM
 
-2023-10-06: "The greater the impact you want to make, the greater your influence needs to be." - Lolly Daskal
+2023-10-07: "Showing off is the fool's idea of glory. " - Bruce Lee
