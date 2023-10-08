@@ -1,3 +1,3 @@
 # GHRM
 
-2023-10-07: "Showing off is the fool's idea of glory. " - Bruce Lee
+2023-10-08: "The soul is neither born, and nor does it die." - Bhagavad Gita
