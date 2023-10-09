@@ -1,3 +1,3 @@
 # GHRM
 
-2023-10-08: "The soul is neither born, and nor does it die." - Bhagavad Gita
+2023-10-09: "To avoid criticism, do nothing, say nothing, and be nothing." - Elbert Hubbard
