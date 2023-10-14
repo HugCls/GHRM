@@ -1,3 +1,3 @@
 # GHRM
 
-2023-10-13: "They say love is the best investment; the more you give, the more you get in return." - Audrey Hepburn
+2023-10-14: "The secret of life isn't what happens to you, but what you do with what happens to you." - Norman Vincent Peale
