@@ -1,3 +1,3 @@
 # GHRM
 
-2023-10-17: "We must create our own world or we will die from inaction." - Robert Greene
+2023-10-18: "You are now, and you do become, what you think about." - Earl Nightingale
