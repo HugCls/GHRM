@@ -1,3 +1,3 @@
 # GHRM
 
-2023-10-21: "Strategy is a commodity, execution is an art." - Peter Drucker
+2023-10-22: "Success is getting what you want. Happiness is wanting what you get." - Andrew Carnegie
