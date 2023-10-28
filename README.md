@@ -1,3 +1,3 @@
 # GHRM
 
-2023-10-27: "It is easy to love your friend, but sometimes the hardest lesson to learn is to love your enemy." - Sun Tzu
+2023-10-28: "Don't ever save anything for a special occasion. Being alive is the special occasion." - Mary Engelbreit
