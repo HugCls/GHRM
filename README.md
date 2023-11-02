@@ -1,3 +1,3 @@
 # GHRM
 
-2023-11-01: "I have never in my life learned anything from any man who agreed with me." - Dudley Field Malone
+2023-11-02: "Whether you think you can or think you can't – you are right." - Henry Ford
