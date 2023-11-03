@@ -1,3 +1,3 @@
 # GHRM
 
-2023-11-02: "Whether you think you can or think you can't – you are right." - Henry Ford
+2023-11-03: "Welcome every morning with a smile. Look on the new day as another gift from your Creator, another golden opportunity." - Og Mandino
