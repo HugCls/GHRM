@@ -1,3 +1,3 @@
 # GHRM
 
-2023-11-03: "Welcome every morning with a smile. Look on the new day as another gift from your Creator, another golden opportunity." - Og Mandino
+2023-11-04: "Your spirit is the true shield." - Morihei Ueshiba
