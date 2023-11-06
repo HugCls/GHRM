@@ -1,3 +1,3 @@
 # GHRM
 
-2023-11-05: "Mistake is a mistake only if you make it twice." - Robin Sharma
+2023-11-06: "Wake up and smile! Wake up and be grateful!" - Steve Harvey
