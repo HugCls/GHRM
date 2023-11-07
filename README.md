@@ -1,3 +1,3 @@
 # GHRM
 
-2023-11-06: "Wake up and smile! Wake up and be grateful!" - Steve Harvey
+2023-11-07: "Inner peace is when you realize that, in the end, nothing matters." - Maxime Lagace
