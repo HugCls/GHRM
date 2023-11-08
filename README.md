@@ -1,3 +1,3 @@
 # GHRM
 
-2023-11-07: "Inner peace is when you realize that, in the end, nothing matters." - Maxime Lagace
+2023-11-08: "I would rather die on my feet than live on my knees." - Euripides
