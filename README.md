@@ -1,3 +1,3 @@
 # GHRM
 
-2023-11-08: "I would rather die on my feet than live on my knees." - Euripides
+2023-11-09: "Adults are just children who earn money." - Kenneth Branagh
