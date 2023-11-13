@@ -1,3 +1,3 @@
 # GHRM
 
-2023-11-12: "Work out your own salvation. Do not depend on others." - Buddha
+2023-11-13: "If you do not change direction, you may end up where you are heading." - Lao Tzu
