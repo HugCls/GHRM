@@ -1,3 +1,3 @@
 # GHRM
 
-2023-11-13: "If you do not change direction, you may end up where you are heading." - Lao Tzu
+2023-11-14: "Everyone you meet is fighting a battle you know nothing about. Be kind. Always." - Robin Williams
