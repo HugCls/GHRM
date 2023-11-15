@@ -1,3 +1,3 @@
 # GHRM
 
-2023-11-14: "Everyone you meet is fighting a battle you know nothing about. Be kind. Always." - Robin Williams
+2023-11-15: "We suffer more often in imagination than in reality.  " - Seneca
