@@ -1,3 +1,3 @@
 # GHRM
 
-2023-11-15: "We suffer more often in imagination than in reality.  " - Seneca
+2023-11-16: "Go confidently in the direction of your dreams! Live the life you've imagined." - Henry David Thoreau
