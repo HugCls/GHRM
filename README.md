@@ -1,3 +1,3 @@
 # GHRM
 
-2023-11-16: "Go confidently in the direction of your dreams! Live the life you've imagined." - Henry David Thoreau
+2023-11-17: "Avoiding danger is no safer in the long run than exposure." - Helen Keller
