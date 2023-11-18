@@ -1,3 +1,3 @@
 # GHRM
 
-2023-11-17: "Avoiding danger is no safer in the long run than exposure." - Helen Keller
+2023-11-18: "When a man is penalized for honesty he learns to lie." - Criss Jami
