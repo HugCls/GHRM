@@ -1,3 +1,3 @@
 # GHRM
 
-2023-11-18: "When a man is penalized for honesty he learns to lie." - Criss Jami
+2023-11-19: "Cleverness is not wisdom." - Euripides
