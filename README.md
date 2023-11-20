@@ -1,3 +1,3 @@
 # GHRM
 
-2023-11-19: "Cleverness is not wisdom." - Euripides
+2023-11-20: "Trying to define yourself is like trying to bite your own teeth." - Zen Proverb
