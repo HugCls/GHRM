@@ -1,3 +1,3 @@
 # GHRM
 
-2023-11-22: "If you want something new, you have to stop doing something old." - Peter Drucker
+2023-11-23: "We are like islands in the sea, separate on the surface but connected in the deep." - William James
