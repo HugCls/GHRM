@@ -1,3 +1,3 @@
 # GHRM
 
-2023-11-24: "You have a brain and mind of your own. Use it, and reach your own decisions." - Napoleon Hill
+2023-11-25: "If there's a definition of freedom, I think it's this: living life on your terms." - Kamal Ravikant
