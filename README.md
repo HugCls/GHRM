@@ -1,3 +1,3 @@
 # GHRM
 
-2023-11-28: "Love is the expression of one's values." - Ayn Rand
+2023-11-29: "Logic is like the sword - those who appeal to it shall perish by it." - Samuel Butler
