@@ -1,3 +1,3 @@
 # GHRM
 
-2023-11-29: "Logic is like the sword - those who appeal to it shall perish by it." - Samuel Butler
+2023-11-30: "Concentrated power has always been the enemy of liberty." - Ronald Reagan
