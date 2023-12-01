@@ -1,3 +1,3 @@
 # GHRM
 
-2023-11-30: "Concentrated power has always been the enemy of liberty." - Ronald Reagan
+2023-12-01: "To a mind that is still, the entire universe surrenders." - Zhuangzi
