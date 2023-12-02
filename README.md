@@ -1,3 +1,3 @@
 # GHRM
 
-2023-12-01: "To a mind that is still, the entire universe surrenders." - Zhuangzi
+2023-12-02: "Happiness is the spiritual experience of living every minute with love, grace and gratitude." - Denis Waitley
