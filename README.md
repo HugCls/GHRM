@@ -1,3 +1,3 @@
 # GHRM
 
-2023-12-02: "Happiness is the spiritual experience of living every minute with love, grace and gratitude." - Denis Waitley
+2023-12-03: "No tree, it is said, can grow to heaven unless its roots reach down to hell." - Carl Jung
