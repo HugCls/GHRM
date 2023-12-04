@@ -1,3 +1,3 @@
 # GHRM
 
-2023-12-03: "No tree, it is said, can grow to heaven unless its roots reach down to hell." - Carl Jung
+2023-12-04: "You are today where your thoughts have brought you." - James Allen
