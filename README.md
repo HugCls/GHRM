@@ -1,3 +1,3 @@
 # GHRM
 
-2023-12-04: "You are today where your thoughts have brought you." - James Allen
+2023-12-05: "All leaders are readers." - Jim Rohn
