@@ -1,3 +1,3 @@
 # GHRM
 
-2023-12-06: "The only man who never makes mistakes is the man who never does anything." - Theodore Roosevelt
+2023-12-07: "None of us can change our yesterdays but all of us can change our tomorrows." - Colin Powell
