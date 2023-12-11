@@ -1,3 +1,3 @@
 # GHRM
 
-2023-12-10: "The purpose of life is to live it, to taste experience to the utmost, to reach out eagerly and without fear for newer and richer experience." - Eleanor Roosevelt
+2023-12-11: "If you run you stand a chance of losing, but if you don't run you've already lost." - Barack Obama
