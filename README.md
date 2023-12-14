@@ -1,3 +1,3 @@
 # GHRM
 
-2023-12-13: "Winning isn't always championships." - Michael Jordan
+2023-12-14: "Friendship takes time and energy if it's going to work." - Betty White
