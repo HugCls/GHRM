@@ -1,3 +1,3 @@
 # GHRM
 
-2023-12-14: "Friendship takes time and energy if it's going to work." - Betty White
+2023-12-15: "Only those who do nothing at all make no mistakes." - Unknown
