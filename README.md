@@ -1,3 +1,3 @@
 # GHRM
 
-2023-12-15: "Only those who do nothing at all make no mistakes." - Unknown
+2023-12-16: "As you grow older you will discover that you have two hands. One for helping yourself, the other for helping others." - Audrey Hepburn
