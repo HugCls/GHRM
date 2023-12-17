@@ -1,3 +1,3 @@
 # GHRM
 
-2023-12-16: "As you grow older you will discover that you have two hands. One for helping yourself, the other for helping others." - Audrey Hepburn
+2023-12-17: "Without education, we are in a horrible and deadly danger of taking educated people seriously." - Gilbert Chesterton
