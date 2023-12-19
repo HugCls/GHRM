@@ -1,3 +1,3 @@
 # GHRM
 
-2023-12-18: "The first rule of handling conflict is don't hang around people who are constantly engaging in conflict." - Naval Ravikant
+2023-12-19: "Winning isn't everything, but wanting to win is." - Vince Lombardi
