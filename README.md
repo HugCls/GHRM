@@ -1,3 +1,3 @@
 # GHRM
 
-2023-12-24: "Love is the expression of one's values." - Ayn Rand
+2023-12-25: "Remember, hope is a good thing, maybe the best of things." - Stephen King
