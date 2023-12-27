@@ -1,3 +1,3 @@
 # GHRM
 
-2023-12-26: "Nothing you do is going to matter that much in the long run. Don't take yourself so seriously." - Naval Ravikant
+2023-12-27: "Most people achieved their greatest success one step beyond what looked like their greatest failure." - Brian Tracy
