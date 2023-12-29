@@ -1,3 +1,3 @@
 # GHRM
 
-2023-12-28: "Yesterday is but today's memory, tomorrow is today's dream." - Kahlil Gibran
+2023-12-29: "Society is composed of two great classes those who have more dinners than appetite, and those who have more appetite than dinners." - Nicolas Chamfort
