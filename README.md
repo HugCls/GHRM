@@ -1,3 +1,3 @@
 # GHRM
 
-2023-12-30: "Happiness is when what you think, what you say, and what you do are in harmony." - Mahatma Gandhi
+2023-12-31: "The biggest challenge after success is shutting up about it." - Criss Jami
