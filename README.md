@@ -1,3 +1,3 @@
 # GHRM
 
-2023-12-31: "The biggest challenge after success is shutting up about it." - Criss Jami
+2024-01-01: "Identification with our mind causes thought to become compulsive." - Eckhart Tolle
