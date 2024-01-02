@@ -1,3 +1,3 @@
 # GHRM
 
-2024-01-01: "Identification with our mind causes thought to become compulsive." - Eckhart Tolle
+2024-01-02: "Our deeds determine us, as much as we determine our deeds." - George Eliot
