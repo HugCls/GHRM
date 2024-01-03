@@ -1,3 +1,3 @@
 # GHRM
 
-2024-01-02: "Our deeds determine us, as much as we determine our deeds." - George Eliot
+2024-01-03: "Don't be afraid to give up the good to go for the great." - John D. Rockefeller
