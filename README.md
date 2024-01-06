@@ -1,3 +1,3 @@
 # GHRM
 
-2024-01-05: "What the mind can conceive and believe, and the heart desire, you can achieve." - Norman Vincent Peale
+2024-01-06: "Silence is a source of great strength." - Lao Tzu
