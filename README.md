@@ -1,3 +1,3 @@
 # GHRM
 
-2024-01-06: "Silence is a source of great strength." - Lao Tzu
+2024-01-07: "Everything that is made beautiful and fair and lovely is made for the eye of one who sees." - Rumi
