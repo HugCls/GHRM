@@ -1,3 +1,3 @@
 # GHRM
 
-2024-01-07: "Everything that is made beautiful and fair and lovely is made for the eye of one who sees." - Rumi
+2024-01-08: "Whatever you do in life, surround yourself with smart people who'll argue with you." - John Wooden
