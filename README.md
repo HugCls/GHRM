@@ -1,3 +1,3 @@
 # GHRM
 
-2024-01-08: "Whatever you do in life, surround yourself with smart people who'll argue with you." - John Wooden
+2024-01-09: "Every drop in the ocean counts. " - Yoko Ono
