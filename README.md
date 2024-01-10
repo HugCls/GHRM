@@ -1,3 +1,3 @@
 # GHRM
 
-2024-01-09: "Every drop in the ocean counts. " - Yoko Ono
+2024-01-10: "Your past does not equal your future." - Tony Robbins
