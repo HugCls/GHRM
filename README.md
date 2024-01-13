@@ -1,3 +1,3 @@
 # GHRM
 
-2024-01-12: "If you don't like something, change it. If you can't change it, change your attitude." - Maya Angelou
+2024-01-13: "Make no small plans for they have no power to stir the soul." - Niccolo Machiavelli
