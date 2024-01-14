@@ -1,3 +1,3 @@
 # GHRM
 
-2024-01-13: "Make no small plans for they have no power to stir the soul." - Niccolo Machiavelli
+2024-01-14: "We're kept from our goal not by obstacles, but by a clear path to a lesser goal." - Bhagavad Gita
