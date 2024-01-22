@@ -1,3 +1,3 @@
 # GHRM
 
-2024-01-21: "You can never get enough of what you don't need to make you happy." - Eric Hoffer
+2024-01-22: "Appear weak when you are strong, and strong when you are weak." - Sun Tzu
