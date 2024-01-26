@@ -1,3 +1,3 @@
 # GHRM
 
-2024-01-25: "A man who acquires the ability to take full possession of his own mind may take possession of anything else to which he is justly entitled." - Andrew Carnegie
+2024-01-26: "Don't ever save anything for a special occasion. Being alive is the special occasion." - Mary Engelbreit
