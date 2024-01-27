@@ -1,3 +1,3 @@
 # GHRM
 
-2024-01-26: "Don't ever save anything for a special occasion. Being alive is the special occasion." - Mary Engelbreit
+2024-01-27: "The chief danger in life is that you may take too many precautions." - Alfred Adler
