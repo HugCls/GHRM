@@ -1,3 +1,3 @@
 # GHRM
 
-2024-01-27: "The chief danger in life is that you may take too many precautions." - Alfred Adler
+2024-01-28: "To live fully is to be always in no-man's-land, to experience each moment as completely new and fresh." - Pema Chodron
