@@ -1,3 +1,3 @@
 # GHRM
 
-2024-01-31: "Do you want to know who you are? Don't ask. Act! Action will delineate and define you." - Thomas Jefferson
+2024-02-01: "You have within you right now, everything you need to deal with whatever the world can throw at you." - Brian Tracy
