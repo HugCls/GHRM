@@ -1,3 +1,3 @@
 # GHRM
 
-2024-02-03: "It is in the heart that makes a man rich. He is rich according to what he is, not according to what he has." - Henry Ward Beecher
+2024-02-03: "Whenever you do a thing, act as if all the world were watching." - Thomas Jefferson
