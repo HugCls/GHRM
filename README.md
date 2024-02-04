@@ -1,3 +1,3 @@
 # GHRM
 
-2024-02-03: "Whenever you do a thing, act as if all the world were watching." - Thomas Jefferson
+2024-02-04: "A fall into a ditch makes you wiser." - Chinese Proverb
