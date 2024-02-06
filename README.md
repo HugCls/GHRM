@@ -1,3 +1,3 @@
 # GHRM
 
-2024-02-05: "When it is dark enough, you can see the stars." - Ralph Waldo Emerson
+2024-02-06: "Live in each season as it passes; breathe the air, drink the drink, taste the fruit, and resign yourself to the influence of the earth." - Henry David Thoreau
