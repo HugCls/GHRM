@@ -1,3 +1,3 @@
 # GHRM
 
-2024-02-09: "Life goes by very fast. And the worst thing in life that you can have is a job that you hate, and have no energy and creativity in." - Robert Greene
+2024-02-10: "When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.  " - Wayne Dyer
