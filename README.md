@@ -1,3 +1,3 @@
 # GHRM
 
-2024-02-10: "When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.  " - Wayne Dyer
+2024-02-11: "When you're the only sane person, you look like the only insane person." - Criss Jami
