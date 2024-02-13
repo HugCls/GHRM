@@ -1,3 +1,3 @@
 # GHRM
 
-2024-02-12: "Our anxiety does not empty tomorrow of its sorrows, but only empties today of its strengths." - Charles Spurgeon
+2024-02-13: "Find something you love and do it better than everyone else." - Gurbaksh Chahal
