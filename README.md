@@ -1,3 +1,3 @@
 # GHRM
 
-2024-02-13: "Find something you love and do it better than everyone else." - Gurbaksh Chahal
+2024-02-14: "They who have conquered doubt and fear have conquered failure." - James Allen
