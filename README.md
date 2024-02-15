@@ -1,3 +1,3 @@
 # GHRM
 
-2024-02-14: "They who have conquered doubt and fear have conquered failure." - James Allen
+2024-02-15: "I have no methods; all I do is accept people as they are." - Joan Rivers
