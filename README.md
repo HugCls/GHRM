@@ -1,3 +1,3 @@
 # GHRM
 
-2024-02-16: "The ego wants to go fast. The soul needs to go slow." - Maxime Lagace
+2024-02-17: "It's not about what it is, it's about what it can become." - Dr. Seuss
