@@ -1,3 +1,3 @@
 # GHRM
 
-2024-02-18: "Tension is who you think you should be. Relaxation is who you are." - Chinese Proverb
+2024-02-19: "To find yourself, think for yourself." - Socrates
