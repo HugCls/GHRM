@@ -1,3 +1,3 @@
 # GHRM
 
-2024-02-24: "If you build the guts to do something, anything, then you better save enough to face the consequences." - Criss Jami
+2024-02-25: "It doesn't matter where you are, you are nowhere compared to where you can go." - Bob Proctor
