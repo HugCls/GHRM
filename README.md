@@ -1,3 +1,3 @@
 # GHRM
 
-2024-02-26: "You have the potential for greatness." - Steve Harvey
+2024-02-27: "Comedy = tragedy + time." - Carol Burnett
