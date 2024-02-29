@@ -1,3 +1,3 @@
 # GHRM
 
-2024-02-28: "Insanity is relative. It depends on who has who locked in what cage.  " - Ray Bradbury
+2024-02-29: "We don't stop playing because we grow old; we grow old because we stop playing." - George Bernard Shaw
