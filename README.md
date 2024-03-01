@@ -1,3 +1,3 @@
 # GHRM
 
-2024-02-29: "We don't stop playing because we grow old; we grow old because we stop playing." - George Bernard Shaw
+2024-03-01: "Great things are not done by impulse, but by a series of small things brought together." - Vincent van Gogh
