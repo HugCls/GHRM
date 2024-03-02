@@ -1,3 +1,3 @@
 # GHRM
 
-2024-03-01: "Great things are not done by impulse, but by a series of small things brought together." - Vincent van Gogh
+2024-03-02: "In the end, it's not the years in your life that count. It's the life in your years." - Abraham Lincoln
