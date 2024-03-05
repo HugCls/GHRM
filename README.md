@@ -1,3 +1,3 @@
 # GHRM
 
-2024-03-04: "Living life in style also means living a life of balance." - Jim Rohn
+2024-03-05: "People who bite the hand that feeds them usually lick the boot that kicks them." - Eric Hoffer
