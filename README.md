@@ -1,3 +1,3 @@
 # GHRM
 
-2024-03-09: "For every minute you are angry you lose sixty seconds of happiness." - Ralph Waldo Emerson
+2024-03-10: "The score never interested me, only the game." - Mae West
