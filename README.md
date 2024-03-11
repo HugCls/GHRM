@@ -1,3 +1,3 @@
 # GHRM
 
-2024-03-10: "The score never interested me, only the game." - Mae West
+2024-03-11: "If you done it, it ain't bragging." - Walt Whitman
