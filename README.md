@@ -1,3 +1,3 @@
 # GHRM
 
-2024-03-12: "Faith is taking the first step even when you don't see the whole staircase." - Martin Luther King, Jr.
+2024-03-13: "Associate yourself with men of good quality, if you esteem your own reputation; for 'tis better to be alone than in bad company. " - George Washington
