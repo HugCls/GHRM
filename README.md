@@ -1,3 +1,3 @@
 # GHRM
 
-2024-03-13: "Associate yourself with men of good quality, if you esteem your own reputation; for 'tis better to be alone than in bad company. " - George Washington
+2024-03-14: "Your goals are the road maps that guide you and show you what is possible for your life." - Les Brown
