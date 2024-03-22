@@ -1,3 +1,3 @@
 # GHRM
 
-2024-03-21: "The question is not what you look at, but what you see." - Henry David Thoreau
+2024-03-22: "Life is either a daring adventure, or nothing." - Helen Keller
