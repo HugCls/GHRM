@@ -1,3 +1,3 @@
 # GHRM
 
-2024-03-28: "Be kind whenever possible. It is always possible." - Dalai Lama
+2024-03-29: "It is difficult to free fools from the chains they revere. " - Voltaire
