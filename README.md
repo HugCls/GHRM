@@ -1,3 +1,3 @@
 # GHRM
 
-2024-03-29: "It is difficult to free fools from the chains they revere. " - Voltaire
+2024-03-30: "Victory is always possible for the person who refuses to stop fighting." - Napoleon Hill
