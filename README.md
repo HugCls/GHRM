@@ -1,3 +1,3 @@
 # GHRM
 
-2024-04-07: "Youth ages, immaturity is outgrown, ignorance can be educated, and drunkenness sobered, but stupid lasts forever." - Aristophanes
+2024-04-08: "It's possible in ways both large or small to make a difference in someone's life." - Yanni
