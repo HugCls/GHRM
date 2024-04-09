@@ -1,3 +1,3 @@
 # GHRM
 
-2024-04-08: "It's possible in ways both large or small to make a difference in someone's life." - Yanni
+2024-04-09: "Life is about not knowing and then doing something anyway." - Mark Manson
