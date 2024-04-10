@@ -1,3 +1,3 @@
 # GHRM
 
-2024-04-09: "Life is about not knowing and then doing something anyway." - Mark Manson
+2024-04-10: "It is best to begin at the beginning." - Amelia Earhart
