@@ -1,3 +1,3 @@
 # GHRM
 
-2024-04-11: "You make your own luck if you stay at it long enough." - Naval Ravikant
+2024-04-12: "Nature is pleased with simplicity. And nature is no dummy." - Isaac Newton
