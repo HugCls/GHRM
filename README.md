@@ -1,3 +1,3 @@
 # GHRM
 
-2024-04-16: "Fashion fades, only style remains the same." - Coco Chanel
+2024-04-17: "Don't worry about being successful, but work toward being significant and the success will naturally follow." - Oprah Winfrey
