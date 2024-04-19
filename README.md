@@ -1,3 +1,3 @@
 # GHRM
 
-2024-04-18: "Giving back involves a certain amount of giving up." - Colin Powell
+2024-04-19: "Creativity is intelligence having fun." - Albert Einstein
