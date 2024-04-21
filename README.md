@@ -1,3 +1,3 @@
 # GHRM
 
-2024-04-20: "When you are tempted to give up, your breakthrough is probably just around the corner." - Joyce Meyer
+2024-04-21: "A lie can travel half way around the world while the truth is putting on its shoes." - Mark Twain
