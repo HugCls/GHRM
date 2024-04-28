@@ -1,3 +1,3 @@
 # GHRM
 
-2024-04-27: "In the midst of movement and chaos, keep stillness inside of you." - Deepak Chopra
+2024-04-28: "What do we live for if not to make life less difficult for each other?" - T.S. Eliot
