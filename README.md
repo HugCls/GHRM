@@ -1,3 +1,3 @@
 # GHRM
 
-2024-04-28: "What do we live for if not to make life less difficult for each other?" - T.S. Eliot
+2024-04-29: "Conscience is a dog that does not stop us from passing but that we cannot prevent from barking." - Nicolas Chamfort
