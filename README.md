@@ -1,3 +1,3 @@
 # GHRM
 
-2024-04-30: "Always be a first rate version of yourself and not a second rate version of someone else." - Judy Garland
+2024-05-01: "Never allow someone to be your priority while allowing yourself to be their option." - Mark Twain
