@@ -1,3 +1,3 @@
 # GHRM
 
-2024-05-01: "Never allow someone to be your priority while allowing yourself to be their option." - Mark Twain
+2024-05-02: "The more you praise and celebrate your life, the more there is in life to celebrate. " - Oprah Winfrey
