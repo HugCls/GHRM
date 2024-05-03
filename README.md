@@ -1,3 +1,3 @@
 # GHRM
 
-2024-05-02: "The more you praise and celebrate your life, the more there is in life to celebrate. " - Oprah Winfrey
+2024-05-03: "It is never too late to be what you might have been." - George Eliot
