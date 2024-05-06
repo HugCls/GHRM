@@ -1,3 +1,3 @@
 # GHRM
 
-2024-05-05: "It still holds true that man is most uniquely human when he turns obstacles into opportunities." - Eric Hoffer
+2024-05-06: "Unhappiness enters through a door that has been left open." - Zen Proverb
