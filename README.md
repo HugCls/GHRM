@@ -1,3 +1,3 @@
 # GHRM
 
-2024-05-10: "Knowledge has to be improved, challenged, and increased constantly, or it vanishes." - Peter Drucker
+2024-05-11: "Everything has its beauty, but not everyone sees it. " - Confucius
