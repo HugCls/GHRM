@@ -1,3 +1,3 @@
 # GHRM
 
-2024-05-11: "Everything has its beauty, but not everyone sees it. " - Confucius
+2024-05-12: "It is better to disappoint people with the truth than to appease them with a lie." - Simon Sinek
