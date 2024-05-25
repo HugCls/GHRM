@@ -1,3 +1,3 @@
 # GHRM
 
-2024-05-24: "You can't make someone feel good about themselves until you feel good about yourself." - Robin Sharma
+2024-05-25: "If we have no peace, it is because we have forgotten that we belong to each other." - Mother Teresa
