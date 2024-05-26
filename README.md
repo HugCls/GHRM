@@ -1,3 +1,3 @@
 # GHRM
 
-2024-05-25: "If we have no peace, it is because we have forgotten that we belong to each other." - Mother Teresa
+2024-05-26: "Lack of direction, not lack of time, is the problem. We all have twenty-four hour days." - Zig Ziglar
