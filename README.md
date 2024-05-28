@@ -1,3 +1,3 @@
 # GHRM
 
-2024-05-27: "Better a diamond with a flaw than a pebble without one." - Chinese Proverb
+2024-05-28: "You have the ability, now apply yourself." - Benjamin Mays
