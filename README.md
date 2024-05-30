@@ -1,3 +1,3 @@
 # GHRM
 
-2024-05-29: "Never argue with stupid people, they will drag you down to their level and then beat you with experience." - Mark Twain
+2024-05-30: "A fall into a ditch makes you wiser." - Chinese Proverb
