@@ -1,3 +1,3 @@
 # GHRM
 
-2024-05-30: "A fall into a ditch makes you wiser." - Chinese Proverb
+2024-05-31: "Before anything else, preparation is the key to success." - Alexander Graham Bell
