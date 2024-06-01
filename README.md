@@ -1,3 +1,3 @@
 # GHRM
 
-2024-05-31: "Before anything else, preparation is the key to success." - Alexander Graham Bell
+2024-06-01: "The two most powerful warriors are patience and time." - Leo Tolstoy
