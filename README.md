@@ -1,3 +1,3 @@
 # GHRM
 
-2024-06-02: "The only normal people are the ones you don't know very well." - Alfred Adler
+2024-06-03: "There are no second chances in life, except to feel remorse." - Carlos Ruiz Zafon
