@@ -1,3 +1,3 @@
 # GHRM
 
-2024-06-03: "There are no second chances in life, except to feel remorse." - Carlos Ruiz Zafon
+2024-06-04: "A clever person turns great troubles into little ones, and little ones into none at all. " - Chinese Proverb
