@@ -1,3 +1,3 @@
 # GHRM
 
-2024-06-04: "A clever person turns great troubles into little ones, and little ones into none at all. " - Chinese Proverb
+2024-06-05: "If you aren't sure which way to do something, do it both ways and see which works better." - John Carmack
