@@ -1,3 +1,3 @@
 # GHRM
 
-2024-06-06: "To plant a garden is to believe in tomorrow.  " - Audrey Hepburn
+2024-06-07: "Life itself is the most wonderful fairy tale." - Hans Christian Andersen
