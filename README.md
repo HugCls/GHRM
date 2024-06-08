@@ -1,3 +1,3 @@
 # GHRM
 
-2024-06-07: "Life itself is the most wonderful fairy tale." - Hans Christian Andersen
+2024-06-08: "Knowing is not enough, we must apply. Willing is not enough, we must do.  " - Bruce Lee
