@@ -1,3 +1,3 @@
 # GHRM
 
-2024-06-09: "If you build the guts to do something, anything, then you better save enough to face the consequences." - Criss Jami
+2024-06-10: "Progress comes to those who train and train; reliance on secret techniques will get you nowhere." - Morihei Ueshiba
