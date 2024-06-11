@@ -1,3 +1,3 @@
 # GHRM
 
-2024-06-10: "Progress comes to those who train and train; reliance on secret techniques will get you nowhere." - Morihei Ueshiba
+2024-06-11: "It only takes a split second to smile and forget, yet to someone that needed it, it can last a lifetime." - Steve Maraboli
