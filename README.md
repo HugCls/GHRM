@@ -1,3 +1,3 @@
 # GHRM
 
-2024-06-16: "You're never given a dream without also being given the power to make it true." - Richard Bach
+2024-06-17: "The best way to find yourself is to lose yourself in the service of others." - Mahatma Gandhi
