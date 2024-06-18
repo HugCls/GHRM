@@ -1,3 +1,3 @@
 # GHRM
 
-2024-06-17: "The best way to find yourself is to lose yourself in the service of others." - Mahatma Gandhi
+2024-06-18: "Do not look for approval except for the consciousness of doing your best." - Andrew Carnegie
