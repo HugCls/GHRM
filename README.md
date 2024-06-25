@@ -1,3 +1,3 @@
 # GHRM
 
-2024-06-24: "The content of your character is your choice. Day by day, what you choose, what you think and what you do is who you become." - Heraclitus
+2024-06-25: "Every failure brings with it the seed of an equivalent success." - Napoleon Hill
