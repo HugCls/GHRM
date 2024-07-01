@@ -1,3 +1,3 @@
 # GHRM
 
-2024-06-30: "Don't let the noise of others opinions drown out your inner voice." - Steve Jobs
+2024-07-01: "Loyalty and friendship are the most precious possessions a man can have." - Herbert Hoover
