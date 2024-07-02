@@ -1,3 +1,3 @@
 # GHRM
 
-2024-07-01: "Loyalty and friendship are the most precious possessions a man can have." - Herbert Hoover
+2024-07-02: "You don't need a weatherman to know which way the wind blows." - Bob Dylan
