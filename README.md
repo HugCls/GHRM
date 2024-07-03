@@ -1,3 +1,3 @@
 # GHRM
 
-2024-07-02: "You don't need a weatherman to know which way the wind blows." - Bob Dylan
+2024-07-03: "It's only after you've stepped outside your comfort zone that you begin to change, grow, and transform." - Roy T. Bennett
