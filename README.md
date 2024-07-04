@@ -1,3 +1,3 @@
 # GHRM
 
-2024-07-03: "It's only after you've stepped outside your comfort zone that you begin to change, grow, and transform." - Roy T. Bennett
+2024-07-04: "Some men see things as they are and ask why. Others dream things that never were and ask why not." - George Bernard Shaw
