@@ -1,3 +1,3 @@
 # GHRM
 
-2024-07-04: "Some men see things as they are and ask why. Others dream things that never were and ask why not." - George Bernard Shaw
+2024-07-05: "If you are far from the enemy, make him believe you are near." - Sun Tzu
