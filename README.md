@@ -1,3 +1,3 @@
 # GHRM
 
-2024-07-10: "Great leaders are almost always great simplifiers, who can cut through argument, debate and doubt, to offer a solution everybody can understand." - Colin Powell
+2024-07-11: "Sometimes success isn't about making the right decision, it's more about making some decision." - Robin Sharma
