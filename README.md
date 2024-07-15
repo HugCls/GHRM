@@ -1,3 +1,3 @@
 # GHRM
 
-2024-07-14: "Tension is who you think you should be. Relaxation is who you are." - Chinese Proverb
+2024-07-15: "To be able to forget means sanity." - Jack London
