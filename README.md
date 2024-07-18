@@ -1,3 +1,3 @@
 # GHRM
 
-2024-07-17: "The ladder of success is best climbed by stepping on the rungs of opportunity." - Ayn Rand
+2024-07-18: "Waste no more time arguing about what a good man should be. Be one." - Marcus Aurelius
