@@ -1,3 +1,3 @@
 # GHRM
 
-2024-07-19: "Success is about doing the right thing, not about doing everything right." - Gary Keller
+2024-07-20: "The harder the conflict, the greater the triumph. " - George Washington
