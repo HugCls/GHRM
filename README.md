@@ -1,3 +1,3 @@
 # GHRM
 
-2024-07-22: "Freeing oneself from words is liberation. " - Bodhidharma
+2024-07-23: "You just can't beat the person who never gives up. " - Babe Ruth
