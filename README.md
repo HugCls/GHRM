@@ -1,3 +1,3 @@
 # GHRM
 
-2024-07-25: "A wise man makes his own decisions, but an ignorant man mindlessly follows the crowd." - Chinese Proverb
+2024-07-26: "Most of us live our lives by accident - we live as it happens. Fulfilment comes when we live our lives on purpose." - Simon Sinek
