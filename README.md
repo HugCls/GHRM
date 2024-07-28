@@ -1,3 +1,3 @@
 # GHRM
 
-2024-07-27: "We are shaped and fashioned by what we love." - Johann Wolfgang von Goethe
+2024-07-28: "The temptation to give up is strongest just before victory." - Zen Proverb
