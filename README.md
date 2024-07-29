@@ -1,3 +1,3 @@
 # GHRM
 
-2024-07-28: "The temptation to give up is strongest just before victory." - Zen Proverb
+2024-07-29: "It is not titles that honour men, but men that honour titles." - Niccolo Machiavelli
