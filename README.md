@@ -1,3 +1,3 @@
 # GHRM
 
-2024-07-29: "It is not titles that honour men, but men that honour titles." - Niccolo Machiavelli
+2024-07-30: "Whatever your heart clings to and confides in, that is really your God." - Martin Luther
