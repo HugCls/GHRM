@@ -1,3 +1,3 @@
 # GHRM
 
-2024-08-01: "It's easy to wish for health when you're sick.  When you're doing well, you need just as much vigilance." - Kamal Ravikant
+2024-08-02: "Generosity is giving more than you can, and pride is taking less than you need." - Kahlil Gibran
