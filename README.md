@@ -1,3 +1,3 @@
 # GHRM
 
-2024-08-04: "Live as if you were to die tomorrow. Learn as if you were to live forever." - Mahatma Gandhi
+2024-08-05: "Your business is not to 'get somewhere' - it is to be here." - Dan Millman
