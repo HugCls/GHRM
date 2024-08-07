@@ -1,3 +1,3 @@
 # GHRM
 
-2024-08-06: "Imagination means nothing without doing.  " - Charlie Chaplin
+2024-08-07: "You are your best thing." - Toni Morrison
