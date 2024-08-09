@@ -1,3 +1,3 @@
 # GHRM
 
-2024-08-08: "Living life in style also means living a life of balance." - Jim Rohn
+2024-08-09: "Winners are not people who never fail, but people who never quit." - Arnold Schwarzenegger
