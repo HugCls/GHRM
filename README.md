@@ -1,3 +1,3 @@
 # GHRM
 
-2024-08-13: "The fear of death follows from the fear of life. A man who lives fully is prepared to die at any time." - Mark Twain
+2024-08-14: "It's easier to go down a hill than up it but the view is much better at the top." - Henry Ward Beecher
