@@ -1,3 +1,3 @@
 # GHRM
 
-2024-08-16: "I have not failed. I've just found 10,000 ways that won't work." - Thomas Edison
+2024-08-17: "When you judge others, you do not define them, you define yourself." - Earl Nightingale
