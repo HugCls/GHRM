@@ -1,3 +1,3 @@
 # GHRM
 
-2024-08-18: "Don't let the noise of others opinions drown out your inner voice." - Steve Jobs
+2024-08-19: "Never lose hope. Storms make people stronger and never last forever." - Roy T. Bennett
