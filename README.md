@@ -1,3 +1,3 @@
 # GHRM
 
-2024-08-21: "Your happiness is what truly matters most. Do what you have to do in order to be happy." - Brian Tracy
+2024-08-22: "Let my soul smile through my heart and my heart smile through my eyes, that I may scatter rich smiles in sad hearts. " - Paramahansa Yogananda
