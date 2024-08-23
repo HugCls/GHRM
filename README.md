@@ -1,3 +1,3 @@
 # GHRM
 
-2024-08-22: "Let my soul smile through my heart and my heart smile through my eyes, that I may scatter rich smiles in sad hearts. " - Paramahansa Yogananda
+2024-08-23: "The soul without imagination is what an observatory would be without a telescope." - Henry Ward Beecher
