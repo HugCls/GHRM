@@ -1,3 +1,3 @@
 # GHRM
 
-2024-08-24: "Admire as much as you can. Most people do not admire enough." - Vincent van Gogh
+2024-08-25: "The Law of Concentration states that whatever you dwell upon grows. The more you think about something, the more it becomes part of your reality." - Brian Tracy
