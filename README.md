@@ -1,3 +1,3 @@
 # GHRM
 
-2024-08-31: "The greatest mistake you can make in life is to be continually fearing you will make one." - Elbert Hubbard
+2024-09-01: "Passion is born deaf and dumb." - Honore de Balzac
