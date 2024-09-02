@@ -1,3 +1,3 @@
 # GHRM
 
-2024-09-01: "Passion is born deaf and dumb." - Honore de Balzac
+2024-09-02: "If you're not making mistakes, then you're not doing anything." - John Wooden
