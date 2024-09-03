@@ -1,3 +1,3 @@
 # GHRM
 
-2024-09-02: "If you're not making mistakes, then you're not doing anything." - John Wooden
+2024-09-03: "Big people don't make people feel small." - Robin Sharma
