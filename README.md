@@ -1,3 +1,3 @@
 # GHRM
 
-2024-09-06: "All men are equal before fish." - Herbert Hoover
+2024-09-07: "The harder you work, the harder it is to surrender." - Vince Lombardi
