@@ -1,3 +1,3 @@
 # GHRM
 
-2024-09-11: "To forget the whole world is easy; to make the whole world forget you is hard." - Zhuangzi
+2024-09-12: "In the practice of tolerance, one's enemy is the best teacher." - Dalai Lama
