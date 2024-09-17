@@ -1,3 +1,3 @@
 # GHRM
 
-2024-09-16: "The chief danger in life is that you may take too many precautions." - Alfred Adler
+2024-09-17: "You are never too old to set another goal or to dream a new dream." - Les Brown
