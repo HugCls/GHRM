@@ -1,3 +1,3 @@
 # GHRM
 
-2024-09-17: "You are never too old to set another goal or to dream a new dream." - Les Brown
+2024-09-18: "Whatever satisfies the soul is truth." - Walt Whitman
