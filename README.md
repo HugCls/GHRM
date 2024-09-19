@@ -1,3 +1,3 @@
 # GHRM
 
-2024-09-18: "Whatever satisfies the soul is truth." - Walt Whitman
+2024-09-19: "It is not as important how we start, but how we finish." - Joyce Meyer
