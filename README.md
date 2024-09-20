@@ -1,3 +1,3 @@
 # GHRM
 
-2024-09-19: "It is not as important how we start, but how we finish." - Joyce Meyer
+2024-09-20: "By the practice of meditation, you will find that you are carrying within your heart a portable paradise." - Paramahansa Yogananda
