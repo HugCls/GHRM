@@ -1,3 +1,3 @@
 # GHRM
 
-2024-09-25: "Choose a job you love, and you will never have to work a day in your life. " - Confucius
+2024-09-26: "Even if you're sure you can win, be careful that you can live with what you lose." - Gary Keller
