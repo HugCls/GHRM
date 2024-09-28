@@ -1,3 +1,3 @@
 # GHRM
 
-2024-09-27: "If you set your goals ridiculously high and its a failure, you will fail above everyone elses success." - James Cameron
+2024-09-28: "You're braver than you believe, and stronger than you seem, and smarter than you think." - A.A. Milne
