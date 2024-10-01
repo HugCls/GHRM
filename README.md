@@ -1,3 +1,3 @@
 # GHRM
 
-2024-09-30: "How many times do you have to get hit over the head until you figure out who's hitting you?" - Harry S. Truman
+2024-10-01: "Life is really simple, but men insist on making it complicated. " - Confucius
