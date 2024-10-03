@@ -1,3 +1,3 @@
 # GHRM
 
-2024-10-02: "In matters of style, swim with the current; in matters of principle, stand like a rock." - Thomas Jefferson
+2024-10-03: "I think self-awareness is probably the most important thing towards being a champion. " - Billie Jean King
