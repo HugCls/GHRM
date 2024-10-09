@@ -1,3 +1,3 @@
 # GHRM
 
-2024-10-08: "From error to error one discovers the entire truth." - Sigmund Freud
+2024-10-09: "Nothing will work unless you do." - Maya Angelou
