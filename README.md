@@ -1,3 +1,3 @@
 # GHRM
 
-2024-10-09: "Nothing will work unless you do." - Maya Angelou
+2024-10-10: "If you can see it in your mind, you can hold it in your mind." - Steve Harvey
