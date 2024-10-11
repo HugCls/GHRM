@@ -1,3 +1,3 @@
 # GHRM
 
-2024-10-10: "If you can see it in your mind, you can hold it in your mind." - Steve Harvey
+2024-10-11: "We can't help everyone, but everyone can help someone." - Ronald Reagan
