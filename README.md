@@ -1,3 +1,3 @@
 # GHRM
 
-2024-10-12: "Life has no limitations except the ones you make." - Les Brown
+2024-10-13: "The only thing we have to fear is fear itself." - Franklin D. Roosevelt
