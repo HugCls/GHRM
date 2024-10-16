@@ -1,3 +1,3 @@
 # GHRM
 
-2024-10-15: "It does not matter how slowly you go so long as you do not stop." - Confucius
+2024-10-16: "The thing about smart people is that they seem like crazy people to dumb people." - Stephen Hawking
