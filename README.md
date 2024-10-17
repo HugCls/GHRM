@@ -1,3 +1,3 @@
 # GHRM
 
-2024-10-16: "The thing about smart people is that they seem like crazy people to dumb people." - Stephen Hawking
+2024-10-17: "The whole of life, from the moment you are born to the moment you die, is a process of learning." - Jiddu Krishnamurti
