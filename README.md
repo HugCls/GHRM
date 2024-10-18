@@ -1,3 +1,3 @@
 # GHRM
 
-2024-10-17: "The whole of life, from the moment you are born to the moment you die, is a process of learning." - Jiddu Krishnamurti
+2024-10-18: "In order for you to be the BEST you can be for others, first you must be BEST for yourself." - Jeffrey Gitomer
