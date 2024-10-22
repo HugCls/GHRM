@@ -1,3 +1,3 @@
 # GHRM
 
-2024-10-21: "If you want to achieve anything in this world, you have to get used to the idea that not everyone will like you." - Simon Sinek
+2024-10-22: "We love the things we love for what they are." - Robert Frost
