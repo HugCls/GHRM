@@ -1,3 +1,3 @@
 # GHRM
 
-2024-10-22: "We love the things we love for what they are." - Robert Frost
+2024-10-23: "Life is either a daring adventure, or nothing." - Helen Keller
