@@ -1,3 +1,3 @@
 # GHRM
 
-2024-10-24: "Turn off your mind, relax, and float downstream." - John Lennon
+2024-10-25: "Do not take life too seriously. You will never get out of it alive." - Elbert Hubbard
