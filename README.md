@@ -1,3 +1,3 @@
 # GHRM
 
-2024-10-26: "Talk to someone about themselves and they'll listen for hours." - Dale Carnegie
+2024-10-27: "Your conscience is the measure of the honesty of your selfishness. Listen to it carefully." - Richard Bach
