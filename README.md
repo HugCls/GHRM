@@ -1,3 +1,3 @@
 # GHRM
 
-2024-11-01: "Don't want anything. Then you get everything." - Seungsahn
+2024-11-02: "People seldom do what they believe in. They do what is convenient, then repent." - Bob Dylan
