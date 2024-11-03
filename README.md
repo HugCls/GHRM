@@ -1,3 +1,3 @@
 # GHRM
 
-2024-11-02: "People seldom do what they believe in. They do what is convenient, then repent." - Bob Dylan
+2024-11-03: "Everything you can imagine is real." - Pablo Picasso
