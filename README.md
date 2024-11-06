@@ -1,3 +1,3 @@
 # GHRM
 
-2024-11-05: "The opportunity of defeating the enemy is provided by the enemy himself." - Sun Tzu
+2024-11-06: "There will always be suffering. But we must not suffer over the suffering." - Alan Watts
