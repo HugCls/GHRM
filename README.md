@@ -1,3 +1,3 @@
 # GHRM
 
-2024-11-08: "Patience is bitter, but its fruit is sweet." - Aristotle
+2024-11-09: "Do good by stealth, and blush to find it fame." - Alexander Pope
