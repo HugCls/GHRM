@@ -1,3 +1,3 @@
 # GHRM
 
-2024-11-12: "Happiness must be grown in one's own garden." - Mary Engelbreit
+2024-11-13: "Life is one long process of getting tired." - Samuel Butler
