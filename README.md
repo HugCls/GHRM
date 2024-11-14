@@ -1,3 +1,3 @@
 # GHRM
 
-2024-11-13: "Life is one long process of getting tired." - Samuel Butler
+2024-11-14: "People often say that motivation doesn't last. Well, neither does bathing - that's why we recommend it daily." - Zig Ziglar
