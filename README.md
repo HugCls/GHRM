@@ -1,3 +1,3 @@
 # GHRM
 
-2024-11-15: "To injure an opponent is to injure yourself. To control aggression without inflicting injury is the Art of Peace." - Morihei Ueshiba
+2024-11-16: "You will face many defeats in life, but never let yourself be defeated." - Maya Angelou
