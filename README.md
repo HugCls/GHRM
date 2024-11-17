@@ -1,3 +1,3 @@
 # GHRM
 
-2024-11-16: "You will face many defeats in life, but never let yourself be defeated." - Maya Angelou
+2024-11-17: "There is no such thing as a great talent without great willpower." - Honore de Balzac
