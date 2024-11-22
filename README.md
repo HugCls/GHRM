@@ -1,3 +1,3 @@
 # GHRM
 
-2024-11-21: "Mistake is a mistake only if you make it twice." - Robin Sharma
+2024-11-22: "Patience is a bitter plant, but its fruit is sweet." - Chinese Proverb
