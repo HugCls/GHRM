@@ -1,3 +1,3 @@
 # GHRM
 
-2024-11-22: "Patience is a bitter plant, but its fruit is sweet." - Chinese Proverb
+2024-11-23: "Success is built sequentially. It's one thing at a time." - Gary Keller
