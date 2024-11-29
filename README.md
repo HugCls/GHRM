@@ -1,3 +1,3 @@
 # GHRM
 
-2024-11-28: "You were born to win, but to be a winner you must plan to win, prepare to win, and expect to win." - Zig Ziglar
+2024-11-29: "Let my soul smile through my heart and my heart smile through my eyes, that I may scatter rich smiles in sad hearts. " - Paramahansa Yogananda
