@@ -1,3 +1,3 @@
 # GHRM
 
-2024-11-30: "Always keep your eyes open. Keep watching. Because whatever you see can inspire you." - Grace Coddington
+2024-12-01: "You may be disappointed if you fail, but you are doomed if you don't try. " - Beverly Sills
