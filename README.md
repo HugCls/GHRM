@@ -1,3 +1,3 @@
 # GHRM
 
-2024-12-01: "You may be disappointed if you fail, but you are doomed if you don't try. " - Beverly Sills
+2024-12-02: "You get paid in direct proportion to the difficulty of problems you solve." - Elon Musk
