@@ -1,3 +1,3 @@
 # GHRM
 
-2024-12-03: "One of the first signs of the beginning of understanding is the wish to die. " - Franz Kafka
+2024-12-04: "The primary point of this existence is to live, and all living things move and grow." - Ming-Dao Deng
