@@ -1,3 +1,3 @@
 # GHRM
 
-2024-12-06: "When one door closes another door opens. " - Alexander Graham Bell
+2024-12-07: "A person hears only what they understand." - Johann Wolfgang von Goethe
