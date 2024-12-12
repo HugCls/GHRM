@@ -1,3 +1,3 @@
 # GHRM
 
-2024-12-11: "Time flies whether you are having fun or not." - Mary Engelbreit
+2024-12-12: "Winners never quit and quitters never win." - Vince Lombardi
