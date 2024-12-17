@@ -1,3 +1,3 @@
 # GHRM
 
-2024-12-16: "Blessed is he who expects nothing, for he shall never be disappointed." - Alexander Pope
+2024-12-17: "The highest form of ignorance is when you reject something you don't know anything about. " - Wayne Dyer
