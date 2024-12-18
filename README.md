@@ -1,3 +1,3 @@
 # GHRM
 
-2024-12-17: "The highest form of ignorance is when you reject something you don't know anything about. " - Wayne Dyer
+2024-12-18: "Nature does not hurry, yet everything is accomplished." - Lao Tzu
