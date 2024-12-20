@@ -1,3 +1,3 @@
 # GHRM
 
-2024-12-19: "Life is like playing the violin in public and learning the instrument as one goes on." - Samuel Butler
+2024-12-20: "We have more possibilities available in each moment than we realize." - Thich Nhat Hanh
