@@ -1,3 +1,3 @@
 # GHRM
 
-2024-12-20: "We have more possibilities available in each moment than we realize." - Thich Nhat Hanh
+2024-12-21: "The energy of the mind is the essence of life." - Aristotle
