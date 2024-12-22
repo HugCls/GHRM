@@ -1,3 +1,3 @@
 # GHRM
 
-2024-12-21: "The energy of the mind is the essence of life." - Aristotle
+2024-12-22: "When you want something in life, you just gotta reach out and grab it." - Christopher McCandless
