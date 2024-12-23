@@ -1,3 +1,3 @@
 # GHRM
 
-2024-12-22: "When you want something in life, you just gotta reach out and grab it." - Christopher McCandless
+2024-12-23: "We are all like the bright moon, we still have our darker side.  " - Kahlil Gibran
