@@ -1,3 +1,3 @@
 # GHRM
 
-2024-12-24: "You have within you right now, everything you need to deal with whatever the world can throw at you." - Brian Tracy
+2024-12-25: "Discontent is the first necessity of progress." - Thomas Edison
