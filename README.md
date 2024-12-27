@@ -1,3 +1,3 @@
 # GHRM
 
-2024-12-26: "Love never keeps a man from pursuing his destiny." - Paulo Coelho
+2024-12-27: "Short cuts make long delays." - J.R.R. Tolkien
