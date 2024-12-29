@@ -1,3 +1,3 @@
 # GHRM
 
-2024-12-28: "Unless a man is master of his soul, all other kinds of mastery amount to little." - Theodore Roosevelt
+2024-12-29: "Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility." - Sigmund Freud
