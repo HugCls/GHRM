@@ -1,3 +1,3 @@
 # GHRM
 
-2024-12-29: "Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility." - Sigmund Freud
+2024-12-30: "Never take your position for granted and never let any favors you receive go to your head." - Robert Greene
