@@ -1,3 +1,3 @@
 # GHRM
 
-2024-12-31: "Life is like playing the violin in public and learning the instrument as one goes on." - Samuel Butler
+2025-01-01: "The impossible can always be broken down into possibilities." - Unknown
