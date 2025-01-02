@@ -1,3 +1,3 @@
 # GHRM
 
-2025-01-01: "The impossible can always be broken down into possibilities." - Unknown
+2025-01-02: "A clear conscience never fears midnight knocking." - Chinese Proverb
