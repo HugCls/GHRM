@@ -1,3 +1,3 @@
 # GHRM
 
-2025-01-02: "A clear conscience never fears midnight knocking." - Chinese Proverb
+2025-01-03: "Thinking is the hardest work there is. That is why so few people engage in it." - Robert Kiyosaki
