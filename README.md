@@ -1,3 +1,3 @@
 # GHRM
 
-2025-01-03: "Thinking is the hardest work there is. That is why so few people engage in it." - Robert Kiyosaki
+2025-01-04: "You use a glass mirror to see your face; you use works of art to see your soul." - George Bernard Shaw
