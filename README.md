@@ -1,3 +1,3 @@
 # GHRM
 
-2025-01-04: "You use a glass mirror to see your face; you use works of art to see your soul." - George Bernard Shaw
+2025-01-05: "Courage is resistance to fear, mastery of fear - not absence of fear." - Mark Twain
