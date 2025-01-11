@@ -1,3 +1,3 @@
 # GHRM
 
-2025-01-10: "The chief danger in life is that you may take too many precautions." - Alfred Adler
+2025-01-11: "Make peace with your inner turmoil." - Unknown
