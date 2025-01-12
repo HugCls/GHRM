@@ -1,3 +1,3 @@
 # GHRM
 
-2025-01-11: "Make peace with your inner turmoil." - Unknown
+2025-01-12: "There is no absolute success in the world, only constant progress." - Jonathan Swift
