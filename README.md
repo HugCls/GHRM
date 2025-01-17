@@ -1,3 +1,3 @@
 # GHRM
 
-2025-01-16: "Anger begins with folly, and ends with repentance. " - Beverly Sills
+2025-01-17: "Be still when you have nothing to say; when genuine passion moves you, say what you've got to say, and say it hot." - D. H. Lawrence
