@@ -1,3 +1,3 @@
 # GHRM
 
-2025-01-17: "Be still when you have nothing to say; when genuine passion moves you, say what you've got to say, and say it hot." - D. H. Lawrence
+2025-01-18: "You don't need to be better than anyone else, you just need to be better than you used to be." - Wayne Dyer
