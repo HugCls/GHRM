@@ -1,3 +1,3 @@
 # GHRM
 
-2025-01-19: "Walk slowly but never walk backward." - Unknown
+2025-01-20: "Absorb what is useful, discard what is not, add what is uniquely your own." - Bruce Lee
