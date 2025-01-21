@@ -1,3 +1,3 @@
 # GHRM
 
-2025-01-20: "Absorb what is useful, discard what is not, add what is uniquely your own." - Bruce Lee
+2025-01-21: "Patience is bitter, but its fruit is sweet." - Aristotle
