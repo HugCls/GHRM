@@ -1,3 +1,3 @@
 # GHRM
 
-2025-01-22: "You don't have to control your thoughts; you just have to stop letting them control you." - Dan Millman
+2025-01-23: "Given the choice between the experience of pain and nothing, I would choose pain." - William Faulkner
