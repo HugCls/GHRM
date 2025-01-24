@@ -1,3 +1,3 @@
 # GHRM
 
-2025-01-23: "Given the choice between the experience of pain and nothing, I would choose pain." - William Faulkner
+2025-01-24: "To improve is to change, so to be perfect is to change often." - Winston Churchill
