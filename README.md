@@ -1,3 +1,3 @@
 # GHRM
 
-2025-01-24: "To improve is to change, so to be perfect is to change often." - Winston Churchill
+2025-01-25: "All life is a manifestation of the spirit, the manifestation of love." - Morihei Ueshiba
