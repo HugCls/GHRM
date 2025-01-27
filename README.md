@@ -1,3 +1,3 @@
 # GHRM
 
-2025-01-26: "Everything eaten is killed. Every meal is a sacrifice." - Adi Da Samraj
+2025-01-27: "By the practice of meditation, you will find that you are carrying within your heart a portable paradise." - Paramahansa Yogananda
