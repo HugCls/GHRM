@@ -1,3 +1,3 @@
 # GHRM
 
-2025-01-27: "By the practice of meditation, you will find that you are carrying within your heart a portable paradise." - Paramahansa Yogananda
+2025-01-28: "Life is a gift. Never forget to enjoy and bask in every moment you are in." - Celestine Chua
