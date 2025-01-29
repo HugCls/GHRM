@@ -1,3 +1,3 @@
 # GHRM
 
-2025-01-28: "Life is a gift. Never forget to enjoy and bask in every moment you are in." - Celestine Chua
+2025-01-29: "Nothing good ever comes of violence." - Martin Luther
