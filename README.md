@@ -1,3 +1,3 @@
 # GHRM
 
-2025-01-31: "Associate yourself with men of good quality, if you esteem your own reputation; for 'tis better to be alone than in bad company. " - George Washington
+2025-02-01: "Creativity is the greatest rebellion in existence." - Osho
