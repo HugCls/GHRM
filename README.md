@@ -1,3 +1,3 @@
 # GHRM
 
-2025-02-01: "Creativity is the greatest rebellion in existence." - Osho
+2025-02-02: "I have not failed. I've just found 10,000 ways that won't work." - Thomas Edison
