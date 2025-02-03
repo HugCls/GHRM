@@ -1,3 +1,3 @@
 # GHRM
 
-2025-02-02: "I have not failed. I've just found 10,000 ways that won't work." - Thomas Edison
+2025-02-03: "The degree of responsibility you take for your life determines how much change you can create in it." - Celestine Chua
