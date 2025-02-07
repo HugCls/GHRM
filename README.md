@@ -1,3 +1,3 @@
 # GHRM
 
-2025-02-06: "We don't stop playing because we grow old; we grow old because we stop playing." - George Bernard Shaw
+2025-02-07: "True life is lived when tiny changes occur." - Leo Tolstoy
