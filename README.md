@@ -1,3 +1,3 @@
 # GHRM
 
-2025-02-11: "Tall oaks grow from little acorns." - Andrew Carnegie
+2025-02-12: "You can put lipstick on a pig. It's still a pig." - Barack Obama
