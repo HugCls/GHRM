@@ -1,3 +1,3 @@
 # GHRM
 
-2025-02-13: "Invisible things are the only realities." - Edgar Allan Poe
+2025-02-14: "Don't look back - you're not going that way." - Mary Engelbreit
