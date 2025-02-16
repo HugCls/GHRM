@@ -1,3 +1,3 @@
 # GHRM
 
-2025-02-15: "Judge your success by what you had to give up in order to get it." - Dalai Lama
+2025-02-16: "Stop comparing yourself to others and focus on your own improvement." - Lolly Daskal
