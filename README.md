@@ -1,3 +1,3 @@
 # GHRM
 
-2025-02-16: "Stop comparing yourself to others and focus on your own improvement." - Lolly Daskal
+2025-02-17: "Only those who do nothing at all make no mistakes." - Unknown
