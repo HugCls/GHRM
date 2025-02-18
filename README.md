@@ -1,3 +1,3 @@
 # GHRM
 
-2025-02-17: "Only those who do nothing at all make no mistakes." - Unknown
+2025-02-18: "Zen insists that the whole trouble is just our failure to realize that there is no problem." - Bruce Lee
