@@ -1,3 +1,3 @@
 # GHRM
 
-2025-02-19: "On the other side of the clouds is a bright blue sky." - Unknown
+2025-02-20: "The world makes way for the man who knows where he is going." - Ralph Waldo Emerson
