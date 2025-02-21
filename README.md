@@ -1,3 +1,3 @@
 # GHRM
 
-2025-02-20: "The world makes way for the man who knows where he is going." - Ralph Waldo Emerson
+2025-02-21: "Wishing to be friends is quick work, but friendship is a slow ripening fruit." - Aristotle
