@@ -1,3 +1,3 @@
 # GHRM
 
-2025-02-28: "Most of the evil in this world is done by people with good intentions." - T.S. Eliot
+2025-03-01: "We suffer more often in imagination than in reality.  " - Seneca
