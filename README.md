@@ -1,3 +1,3 @@
 # GHRM
 
-2025-03-03: "A man sooner or later discovers that he is the master-gardener of his soul, the director of his life." - James Allen
+2025-03-04: "Accept responsibility for your life. Know that it is you who will get you where you want to go, no one else." - Les Brown
