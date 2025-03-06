@@ -1,3 +1,3 @@
 # GHRM
 
-2025-03-05: "Our stories may be singular, but our destination is shared." - Barack Obama
+2025-03-06: "The goal is not to be perfect by the end, the goal is to be better today." - Simon Sinek
