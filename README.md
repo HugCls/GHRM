@@ -1,3 +1,3 @@
 # GHRM
 
-2025-03-09: "In the middle of difficulty lies opportunity." - Albert Einstein
+2025-03-10: "Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more." - Tony Robbins
