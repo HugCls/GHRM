@@ -1,3 +1,3 @@
 # GHRM
 
-2025-03-10: "Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more." - Tony Robbins
+2025-03-11: "Someone who points out your flaws to you is not necessarily your enemy. Someone who speaks of your virtues is not necessarily your friend." - Zen Proverb
