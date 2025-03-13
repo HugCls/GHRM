@@ -1,3 +1,3 @@
 # GHRM
 
-2025-03-12: "Fools talk, cowards are silent, wise men listen." - Carlos Ruiz Zafon
+2025-03-13: "In youth we run into difficulties. In old age difficulties run into us. " - Beverly Sills
