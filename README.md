@@ -1,3 +1,3 @@
 # GHRM
 
-2025-03-13: "In youth we run into difficulties. In old age difficulties run into us. " - Beverly Sills
+2025-03-14: "The best way to predict the future is to create it." - Abraham Lincoln
