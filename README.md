@@ -1,3 +1,3 @@
 # GHRM
 
-2025-03-14: "The best way to predict the future is to create it." - Abraham Lincoln
+2025-03-15: "Do the difficult things while they are easy and do the great things while they are small." - Lao Tzu
