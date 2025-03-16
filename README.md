@@ -1,3 +1,3 @@
 # GHRM
 
-2025-03-15: "Do the difficult things while they are easy and do the great things while they are small." - Lao Tzu
+2025-03-16: "There are no accidents... there is only some purpose that we haven't yet understood." - Deepak Chopra
