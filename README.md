@@ -1,3 +1,3 @@
 # GHRM
 
-2025-03-17: "Scared people want comfort and certainty so they avoid failure. People living fully seek challenges because this is where they feel alive." - Maxime Lagace
+2025-03-18: "The most important single ingredient in the formula of success is knowing how to get along with people." - Theodore Roosevelt
