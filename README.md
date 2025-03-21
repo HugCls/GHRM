@@ -1,3 +1,3 @@
 # GHRM
 
-2025-03-20: "Everyone is a moon, and has a dark side which he never shows to anybody." - Mark Twain
+2025-03-21: "There are dark shadows on the earth, but its lights are stronger in the contrast." - Charles Dickens
