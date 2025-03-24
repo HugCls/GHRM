@@ -1,3 +1,3 @@
 # GHRM
 
-2025-03-23: "Where the willingness is great, the difficulties cannot be great." - Niccolo Machiavelli
+2025-03-24: "Conscience is a dog that does not stop us from passing but that we cannot prevent from barking." - Nicolas Chamfort
