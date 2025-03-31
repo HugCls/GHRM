@@ -1,3 +1,3 @@
 # GHRM
 
-2025-03-30: "Luck is what happens when preparation meets opportunity.  " - Seneca
+2025-03-31: "A Penny Saved is a Penny Earned" - Benjamin Franklin
