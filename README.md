@@ -1,3 +1,3 @@
 # GHRM
 
-2025-04-01: "You must find the place inside yourself where nothing is impossible." - Les Brown
+2025-04-02: "Happiness is a quality of the soul...not a function of one's material circumstances." - Aristotle
