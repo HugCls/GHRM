@@ -1,3 +1,3 @@
 # GHRM
 
-2025-04-05: "In the midst of movement and chaos, keep stillness inside of you." - Deepak Chopra
+2025-04-06: "What's right is what's left if you do everything else wrong." - Robin Williams
