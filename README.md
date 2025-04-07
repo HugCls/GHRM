@@ -1,3 +1,3 @@
 # GHRM
 
-2025-04-06: "What's right is what's left if you do everything else wrong." - Robin Williams
+2025-04-07: "I've always lived in the moment." - Yanni
