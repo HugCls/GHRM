@@ -1,3 +1,3 @@
 # GHRM
 
-2025-04-08: "A man is not called wise because he talks and talks again; but if he is peaceful, loving and fearless then he is in truth called wise. " - Buddha
+2025-04-09: "Inspire yourself to be great. Being good isn't good enough." - Gurbaksh Chahal
