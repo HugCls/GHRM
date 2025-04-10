@@ -1,3 +1,3 @@
 # GHRM
 
-2025-04-09: "Inspire yourself to be great. Being good isn't good enough." - Gurbaksh Chahal
+2025-04-10: "Patience expands your options. If you insist on immediate gratification, your choices are severely limited." - Ralph Marston
