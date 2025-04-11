@@ -1,3 +1,3 @@
 # GHRM
 
-2025-04-10: "Patience expands your options. If you insist on immediate gratification, your choices are severely limited." - Ralph Marston
+2025-04-11: "It's your life-but only if you make it so." - Eleanor Roosevelt
