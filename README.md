@@ -1,3 +1,3 @@
 # GHRM
 
-2025-04-16: "What's the point in being smart enough to read, if everything you read makes you dumb?" - C. Sean McGee
+2025-04-17: "The whole world is a series of miracles, but we're so used to them we call them ordinary things." - Hans Christian Andersen
