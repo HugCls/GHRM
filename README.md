@@ -1,3 +1,3 @@
 # GHRM
 
-2025-04-19: "The greatest value of a picture is when it forces us to notice what we never expected to see." - John Tukey
+2025-04-20: "A man who cannot tolerate small misfortunes can never accomplish great things." - Chinese Proverb
