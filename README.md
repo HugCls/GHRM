@@ -1,3 +1,3 @@
 # GHRM
 
-2025-04-20: "A man who cannot tolerate small misfortunes can never accomplish great things." - Chinese Proverb
+2025-04-21: "When something is important enough, you do it even if the odds are not in your favor." - Elon Musk
