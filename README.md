@@ -1,3 +1,3 @@
 # GHRM
 
-2025-04-21: "When something is important enough, you do it even if the odds are not in your favor." - Elon Musk
+2025-04-22: "Fear of death is fear of surrender to Infinity. Learn to surrender, to exist at Infinity while alive, and fear of death dissolves." - Adi Da Samraj
