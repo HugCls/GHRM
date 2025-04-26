@@ -1,3 +1,3 @@
 # GHRM
 
-2025-04-25: "The world only exists in your eyes. You can make it as big or as small as you want." - F. Scott Fitzgerald
+2025-04-26: "I am who I am today because of the choices I made yesterday." - Eleanor Roosevelt
