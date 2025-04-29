@@ -1,3 +1,3 @@
 # GHRM
 
-2025-04-28: "Life does not get better by chance, it gets better by change." - Jim Rohn
+2025-04-29: "When we have our body and mind in order, everything else will exist in the right place, in the right way." - Shunryu Suzuki
