@@ -1,3 +1,3 @@
 # GHRM
 
-2025-04-30: "It's very important to like the people you work with, otherwise life and your job is gonna be quite miserable." - Elon Musk
+2025-05-01: "If you're waiting until you feel talented enough to make it, you'll never make it." - Criss Jami
