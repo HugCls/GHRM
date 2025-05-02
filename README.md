@@ -1,3 +1,3 @@
 # GHRM
 
-2025-05-01: "If you're waiting until you feel talented enough to make it, you'll never make it." - Criss Jami
+2025-05-02: "You are never too old to set another goal or to dream a new dream." - Les Brown
