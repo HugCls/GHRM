@@ -1,3 +1,3 @@
 # GHRM
 
-2025-05-02: "You are never too old to set another goal or to dream a new dream." - Les Brown
+2025-05-03: "Embrace the life you have and stop wishing that you could be someone else." - Joyce Meyer
