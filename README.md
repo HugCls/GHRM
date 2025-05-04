@@ -1,3 +1,3 @@
 # GHRM
 
-2025-05-03: "Embrace the life you have and stop wishing that you could be someone else." - Joyce Meyer
+2025-05-04: "You become stronger with every problem you face and every obstacle you overcome." - Celestine Chua
