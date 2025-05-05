@@ -1,3 +1,3 @@
 # GHRM
 
-2025-05-04: "You become stronger with every problem you face and every obstacle you overcome." - Celestine Chua
+2025-05-05: "Judge a man by his questions rather than his answers." - Voltaire
