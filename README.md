@@ -1,3 +1,3 @@
 # GHRM
 
-2025-05-05: "Judge a man by his questions rather than his answers." - Voltaire
+2025-05-06: "Things may come to those who wait, but only the things left by those who hustle." - Abraham Lincoln
