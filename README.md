@@ -1,3 +1,3 @@
 # GHRM
 
-2025-05-09: "The more you extend kindness to yourself, the more it will become your automatic response to others." - Wayne Dyer
+2025-05-10: "The right thing to do and the hard thing to do are usually the same." - Steve Maraboli
