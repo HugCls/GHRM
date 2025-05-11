@@ -1,3 +1,3 @@
 # GHRM
 
-2025-05-10: "The right thing to do and the hard thing to do are usually the same." - Steve Maraboli
+2025-05-11: "If I cannot do great things. I can do small things in a great way." - Martin Luther King, Jr.
