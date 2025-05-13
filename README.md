@@ -1,3 +1,3 @@
 # GHRM
 
-2025-05-12: "The opposite of courage in our society is not cowardice... it is conformity." - Earl Nightingale
+2025-05-13: "There are more people who wish to be loved than there are who are willing to love. " - Nicolas Chamfort
