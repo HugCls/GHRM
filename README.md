@@ -1,3 +1,3 @@
 # GHRM
 
-2025-05-13: "There are more people who wish to be loved than there are who are willing to love. " - Nicolas Chamfort
+2025-05-14: "Every man's work, whether it be literature or music or pictures or architecture or anything else, is always a portrait of himself." - Samuel Butler
