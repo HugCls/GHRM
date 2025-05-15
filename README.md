@@ -1,3 +1,3 @@
 # GHRM
 
-2025-05-14: "Every man's work, whether it be literature or music or pictures or architecture or anything else, is always a portrait of himself." - Samuel Butler
+2025-05-15: "Peace is letting it be. Letting life flow, letting emotions flow through you." - Kamal Ravikant
