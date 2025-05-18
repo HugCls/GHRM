@@ -1,3 +1,3 @@
 # GHRM
 
-2025-05-17: "If you do not tell the truth about yourself you cannot tell it about other people." - Virginia Woolf
+2025-05-18: "If your happiness depends on what somebody else does, I guess you do have a problem." - Richard Bach
