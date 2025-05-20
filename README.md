@@ -1,3 +1,3 @@
 # GHRM
 
-2025-05-19: "Success is a poor teacher." - Robert Kiyosaki
+2025-05-20: "Open your mind before your mouth." - Aristophanes
