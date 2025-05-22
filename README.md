@@ -1,3 +1,3 @@
 # GHRM
 
-2025-05-21: "The goal is not to show how great you are to others, but how vulnerable you are to yourself." - Maxime Lagace
+2025-05-22: "Life needs to be more than just solving problems every day. You need to wake up and be excited about the future." - Elon Musk
