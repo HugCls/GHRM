@@ -1,3 +1,3 @@
 # GHRM
 
-2025-05-22: "Life needs to be more than just solving problems every day. You need to wake up and be excited about the future." - Elon Musk
+2025-05-23: "The wise accomplish all that they want without arousing the envy or scorn of others." - Ming-Dao Deng
