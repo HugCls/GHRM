@@ -1,3 +1,3 @@
 # GHRM
 
-2025-05-25: "It is not that we have too little time to do all the things we need to do , it is that we feel the need to do too many things in the time we have." - Gary Keller
+2025-05-26: "It's your life-but only if you make it so." - Eleanor Roosevelt
