@@ -1,3 +1,3 @@
 # GHRM
 
-2025-05-26: "It's your life-but only if you make it so." - Eleanor Roosevelt
+2025-05-27: "Genius is patience." - Isaac Newton
