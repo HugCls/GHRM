@@ -1,3 +1,3 @@
 # GHRM
 
-2025-06-01: "Employ your time in improving yourself by other men's writings, so that you shall gain easily what others have labored hard for." - Socrates
+2025-06-02: "When one door closes another door opens. " - Alexander Graham Bell
