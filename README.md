@@ -1,3 +1,3 @@
 # GHRM
 
-2025-06-02: "When one door closes another door opens. " - Alexander Graham Bell
+2025-06-03: "The attempt to escape from pain, is what creates more pain." - Gabor Mate
