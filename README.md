@@ -1,3 +1,3 @@
 # GHRM
 
-2025-06-03: "The attempt to escape from pain, is what creates more pain." - Gabor Mate
+2025-06-04: "An approximate answer to the right question is worth a great deal more than a precise answer to the wrong question." - John Tukey
