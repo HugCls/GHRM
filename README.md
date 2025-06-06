@@ -1,3 +1,3 @@
 # GHRM
 
-2025-06-05: "Stand up to your obstacles and do something about them. You'll find they haven't half the strength you think they have." - Norman Vincent Peale
+2025-06-06: "I can never decide whether my dreams are the result of my thoughts or my thoughts the result of my dreams." - D. H. Lawrence
