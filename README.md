@@ -1,3 +1,3 @@
 # GHRM
 
-2025-06-12: "There is no greater agony than bearing an untold story inside you." - Maya Angelou
+2025-06-13: "The best dreams happen when you're awake." - Cherie Gilderbloom
