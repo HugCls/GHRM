@@ -1,3 +1,3 @@
 # GHRM
 
-2025-06-13: "The best dreams happen when you're awake." - Cherie Gilderbloom
+2025-06-14: "The future doesn't belong to the faint-hearted; it belongs to the brave." - Ronald Reagan
