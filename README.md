@@ -1,3 +1,3 @@
 # GHRM
 
-2025-06-14: "The future doesn't belong to the faint-hearted; it belongs to the brave." - Ronald Reagan
+2025-06-15: "One of the first signs of the beginning of understanding is the wish to die. " - Franz Kafka
