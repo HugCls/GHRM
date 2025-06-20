@@ -1,3 +1,3 @@
 # GHRM
 
-2025-06-19: "A single act of kindness throws out roots in all directions, and the roots spring up and make new trees." - Amelia Earhart
+2025-06-20: "A bird does not sing because it has an answer. It sings because it has a song." - Chinese Proverb
