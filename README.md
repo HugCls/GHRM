@@ -1,3 +1,3 @@
 # GHRM
 
-2025-06-20: "A bird does not sing because it has an answer. It sings because it has a song." - Chinese Proverb
+2025-06-21: "Don't explain your philosophy. Embody it." - Epictetus
