@@ -1,3 +1,3 @@
 # GHRM
 
-2025-06-21: "Don't explain your philosophy. Embody it." - Epictetus
+2025-06-22: "Don't talk about what you have done or what you are going to do." - Thomas Jefferson
