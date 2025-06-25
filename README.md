@@ -1,3 +1,3 @@
 # GHRM
 
-2025-06-24: "The smallest act of kindness is worth more than the greatest intention.  " - Kahlil Gibran
+2025-06-25: "Work as though you would live forever, and live as though you would die today. Go another mile." - Og Mandino
