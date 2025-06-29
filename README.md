@@ -1,3 +1,3 @@
 # GHRM
 
-2025-06-28: "I find the best way to love someone is not to change them, but instead, help them reveal the greatest version of themselves." - Steve Maraboli
+2025-06-29: "It is children only who enjoy the present; their elders either live on the memory of the past or the hope of the future." - Nicolas Chamfort
