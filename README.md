@@ -1,3 +1,3 @@
 # GHRM
 
-2025-06-30: "Fashion fades, only style remains the same." - Coco Chanel
+2025-07-01: "People become attached to their burdens sometimes more than the burdens are attached to them." - George Bernard Shaw
