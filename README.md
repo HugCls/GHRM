@@ -1,3 +1,3 @@
 # GHRM
 
-2025-07-03: "A fool sees himself as another, but a wise man sees others as himself." - Dogen
+2025-07-04: "Hope means hoping when everything seems hopeless." - Gilbert Chesterton
