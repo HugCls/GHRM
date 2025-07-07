@@ -1,3 +1,3 @@
 # GHRM
 
-2025-07-06: "The sun shines upon good and bad alike." - Hans Christian Andersen
+2025-07-07: "Never take your position for granted and never let any favors you receive go to your head." - Robert Greene
