@@ -1,3 +1,3 @@
 # GHRM
 
-2025-07-12: "The most effective way to do it, is to do it." - Amelia Earhart
+2025-07-13: "Sometimes good things fall apart so better things can fall together." - Marilyn Monroe
