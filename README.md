@@ -1,3 +1,3 @@
 # GHRM
 
-2025-07-14: "There are few reasons for telling the truth, but for lying the number is infinite." - Carlos Ruiz Zafon
+2025-07-15: "Trying to define yourself is like trying to bite your own teeth." - Alan Watts
