@@ -1,3 +1,3 @@
 # GHRM
 
-2025-07-15: "Trying to define yourself is like trying to bite your own teeth." - Alan Watts
+2025-07-16: "My guiding principle is this: Guilt is never to be doubted. " - Franz Kafka
