@@ -1,3 +1,3 @@
 # GHRM
 
-2025-07-20: "As mortals, we're ruled by conditions, not by ourselves." - Bodhidharma
+2025-07-21: "Opportunity often comes disguised in the form of misfortune or temporary defeat." - Napoleon Hill
