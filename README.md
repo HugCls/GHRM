@@ -1,3 +1,3 @@
 # GHRM
 
-2025-07-21: "Opportunity often comes disguised in the form of misfortune or temporary defeat." - Napoleon Hill
+2025-07-22: "Believe that life is worth living and your belief will help create the fact." - William James
