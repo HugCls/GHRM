@@ -1,3 +1,3 @@
 # GHRM
 
-2025-07-22: "Believe that life is worth living and your belief will help create the fact." - William James
+2025-07-23: "The difference between treason and patriotism is only a matter of dates." - Alexandre Dumas
