@@ -1,3 +1,3 @@
 # GHRM
 
-2025-07-23: "The difference between treason and patriotism is only a matter of dates." - Alexandre Dumas
+2025-07-24: "Mastery is not a function of genius or talent, it is a function of time and intense focus applied to a particular field of knowledge." - Robert Greene
