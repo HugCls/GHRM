@@ -1,3 +1,3 @@
 # GHRM
 
-2025-07-26: "Listen to what you know instead of what you fear." - Richard Bach
+2025-07-27: "Definiteness of purpose is the starting point of all achievement. " - W. Clement Stone
