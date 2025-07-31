@@ -1,3 +1,3 @@
 # GHRM
 
-2025-07-30: "I was wise enough to never grow up while fooling most people into believing I had. " - Margaret Mead
+2025-07-31: "In youth we run into difficulties. In old age difficulties run into us. " - Beverly Sills
