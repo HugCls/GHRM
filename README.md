@@ -1,3 +1,3 @@
 # GHRM
 
-2025-07-31: "In youth we run into difficulties. In old age difficulties run into us. " - Beverly Sills
+2025-08-01: "If you aim at nothing, you will hit it every time.  " - Zig Ziglar
