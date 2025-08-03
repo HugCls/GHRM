@@ -1,3 +1,3 @@
 # GHRM
 
-2025-08-02: "Do not stop thinking of life as an adventure." - Eleanor Roosevelt
+2025-08-03: "Tradition is the illusion of permanence. " - Woody Allen
