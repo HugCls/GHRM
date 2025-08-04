@@ -1,3 +1,3 @@
 # GHRM
 
-2025-08-03: "Tradition is the illusion of permanence. " - Woody Allen
+2025-08-04: "There are no differences but differences of degree between different degrees of difference and no difference." - William James
