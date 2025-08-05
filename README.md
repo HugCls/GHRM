@@ -1,3 +1,3 @@
 # GHRM
 
-2025-08-04: "There are no differences but differences of degree between different degrees of difference and no difference." - William James
+2025-08-05: "Successful people appreciate where they have come from, but they don't let their past set the tone for their future." - Steve Harvey
