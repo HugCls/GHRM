@@ -1,3 +1,3 @@
 # GHRM
 
-2025-08-06: "Humor isn't for everyone. It's only for people who want to have fun, enjoy life, and feel alive." - Anne Wilson Schaef
+2025-08-07: "You are not one person, but three: The one you think you are; The one others think you are; The one you really are." - Sathya Sai Baba
