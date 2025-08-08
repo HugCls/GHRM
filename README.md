@@ -1,3 +1,3 @@
 # GHRM
 
-2025-08-07: "You are not one person, but three: The one you think you are; The one others think you are; The one you really are." - Sathya Sai Baba
+2025-08-08: "When everything seems to be going against you, remember that the airplane takes off against the wind, not with it." - Henry Ford
