@@ -1,3 +1,3 @@
 # GHRM
 
-2025-08-08: "When everything seems to be going against you, remember that the airplane takes off against the wind, not with it." - Henry Ford
+2025-08-09: "Your vision will become clear only when you can look into your own heart." - Lolly Daskal
