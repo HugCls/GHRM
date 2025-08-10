@@ -1,3 +1,3 @@
 # GHRM
 
-2025-08-09: "Your vision will become clear only when you can look into your own heart." - Lolly Daskal
+2025-08-10: "Most people fail in life not because they aim too high and miss, but because they aim too low and hit." - Les Brown
