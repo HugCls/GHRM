@@ -1,3 +1,3 @@
 # GHRM
 
-2025-08-10: "Most people fail in life not because they aim too high and miss, but because they aim too low and hit." - Les Brown
+2025-08-11: "When the world pushes you to your knees, you're in the perfect position to pray." - Rumi
