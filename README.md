@@ -1,3 +1,3 @@
 # GHRM
 
-2025-08-11: "When the world pushes you to your knees, you're in the perfect position to pray." - Rumi
+2025-08-12: "Love and compassion are necessities, not luxuries. Without them, humanity cannot survive." - Dalai Lama
