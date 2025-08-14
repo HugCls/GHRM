@@ -1,3 +1,3 @@
 # GHRM
 
-2025-08-13: "The purpose of life is to contribute in some way to making things better." - Robert F. Kennedy
+2025-08-14: "To do great work one must be very idle as well as very industrious." - Samuel Butler
