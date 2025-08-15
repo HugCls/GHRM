@@ -1,3 +1,3 @@
 # GHRM
 
-2025-08-14: "To do great work one must be very idle as well as very industrious." - Samuel Butler
+2025-08-15: "Time is more valuable than money. You can get more money, but you cannot get more time." - Jim Rohn
