@@ -1,3 +1,3 @@
 # GHRM
 
-2025-08-17: "A man is literally what he thinks." - James Allen
+2025-08-18: "Focused, hard work is the real key to success." - John Carmack
