@@ -1,3 +1,3 @@
 # GHRM
 
-2025-08-19: "Every traveler has a home of his own, and he learns to appreciate it the more from his wandering." - Charles Dickens
+2025-08-20: "Always look on the bright side of things. If you can't comprehend this, polish that which has become dull until it begins to shine." - Zen Proverb
