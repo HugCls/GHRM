@@ -1,3 +1,3 @@
 # GHRM
 
-2025-08-21: "If you change the way you look at things, the things you look at change. " - Wayne Dyer
+2025-08-22: "The present moment dies every moment to become the past , is reborn every moment into the future. All experience is now. Now never ends." - Deepak Chopra
