@@ -1,3 +1,3 @@
 # GHRM
 
-2025-08-22: "The present moment dies every moment to become the past , is reborn every moment into the future. All experience is now. Now never ends." - Deepak Chopra
+2025-08-23: "Better to live until you die." - Dan Millman
