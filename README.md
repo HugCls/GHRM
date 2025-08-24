@@ -1,3 +1,3 @@
 # GHRM
 
-2025-08-23: "Better to live until you die." - Dan Millman
+2025-08-24: "The more I want to get something done, the less I call it work." - Richard Bach
