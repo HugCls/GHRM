@@ -1,3 +1,3 @@
 # GHRM
 
-2025-08-26: "Life comes at us in waves. We can't predict or control those waves, but we can learn to surf." - Dan Millman
+2025-08-27: "In order to attain the impossible, one must attempt the absurd." - Miguel de Cervantes
