@@ -1,3 +1,3 @@
 # GHRM
 
-2025-08-29: "Not doing it is certainly the best way to not getting it.  " - Wayne Gretzky
+2025-08-30: "No experience is a cause of success or failure. We do not suffer from the shock of our experiences, so-called trauma - but we make out of them just what suits our purposes." - Alfred Adler
